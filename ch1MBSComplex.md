@@ -188,7 +188,7 @@ of course,
 why we have so much tonal prayer and trance,
 whether it be Sufi dervishes spinning to an intoxicating Arabic song-like prayer,
 heavy on chanting,
-or the persistence of mantra in yoga and meditation,
+the persistence of mantra in yoga and meditation,
 long vowel sounds drawn out on the breath,
 or the deep throat singing of the Mongols,
 which,
@@ -234,10 +234,77 @@ but is not dark,
 the final riddle from the illiterate weaver.
 
 
-We are not really in actuality creating anything. We are traversing it and enjoining an experience with it. We are students within an ultimate form of an educational video. A video where the being inside is completely unaware that they are even inside it until such a point that the nature of the system reveals itself in form. This video has already happened within another time scale.
--        We are simply reliving the mapped out keys of the experiences. Every choice, every path, set of functions, every different type of life has been made available to us so we can embody the experience. These situations are mapped like a script. A script that is commissioned to run within its own emulation system. Thus simply being able to fire up the key strokes, and akin to how a replay of a video game works, we are able to repeat and review the process. The key mapping is directly designed for its specific game or story engine that it has been created for to be able to have an extremely energetically efficient emulation system.
-This is still the beginning of my own educational journey on the matter of holographic realities. As I focus some attention on the nature of non holographic realities as well, I will see what unveils as truth to me. For any one reading this book, this is in no way an indication to lessen your view on what you are responsible for in creating within this world. Your free willed choices bring you and your essence to what part of the story unfolds. As it unfolds you receive the blessings of that particular experience. Don't fall sway to helplessness and remember how truly connected you are to the outcome from your set of unique choices.
-As we get further and further into this journey realizing that we are time traveling beings by nature and in no such way is this experience linear in fashion. We are responsible for our creations forwards and backwards throughout time and we have the power to make alterations as we see fit, by connecting ourselves to past and future versions of ourself. Constantly and exponential raising our total potential. As we are each unique standing waved DNA Nations of one. Many teachers, students and guides have helped me to garnish these views and sets of words, and are in no way ultimately mine but said within my own signature authentic frequency. Keep up all the enthusiasm folks. It is a pleasure to learn with you all.
+We are not actuality creating anything in time.
+We are traversing it and enjoining an experience with it.
+We are seedlings in a cosmic garden,
+passing through experiences expressed in a specific form of life,
+and then,
+when sentience is achieved alongside language and culture,
+we go through any number of human expressions until we master the tool,
+the *hu man* form,
+a rather extraordinary instrument,
+as maligned as it has become in the *First World*,
+the newer,
+better hu* man* that seems just around the corner,
+the *trans-hu-man*,
+the super man made from man,
+Nietzsche's bastard let loose upon the world
+&mdash;
+nonetheless,
+a rather extraordinary instrument,
+the *hu man* form.
+We are inside a sound and light reality,
+one of many,
+and we traverse and enjoin experience with it,
+unaware we're inside it,
+until,
+by epiphany,
+the nature of the system reveals itself in form.
+The story was written before we lived it,
+even though it seemed like it was really happening for the longest of times.
+We are living the mapped out keys of the experiences.
+Every choice,
+path,
+and set of functions,
+every different type of life has been made available to us so we can embody the experience,
+mapped like a script,
+written into what we perceive to be a timeline,
+a bloodline,
+a clan,
+a tribe,
+a culture,
+a people,
+a place,
+a planet
+&mdash;
+stories within stories,
+managed by cosmic editors and keepers of time,
+all under a prime creator,
+an amorphous but fully conscious presence in everything we call life,
+unconditionally offering the experiences as an expression of its love.
+You believe as much already if you follow a prophetic religion.
+The prophets tell of a a story already written.
+
+
+Do not diminish your position as a living and sentient being.
+You are creating within this world.
+Your free will choices unfold the story.
+As the story unfolds,
+you receive the blessings of the particular experience.
+Never feel overwhelmed or helpless.
+We are truly connected to the outcome of our unique choices.
+
+As we get further and further into this journey realizing that we are time traveling beings by nature and in no such way is this experience linear in fashion.
+We are responsible for our creations forwards and backwards throughout time and we have the power to make alterations as we see fit,
+by connecting ourselves to past and future versions of ourself.
+Constantly and exponential raising our total potential.
+As we are each unique standing waved DNA Nations of one.
+Many teachers,
+students and guides have helped me to garnish these views and sets of words,
+and are in no way ultimately mine but said within my own signature authentic frequency.
+Keep up all the enthusiasm folks.
+It is a pleasure to learn with you all.
+
 
 THERE IS NO OUT THERE, OUT THERE OR IS THERE? – ONENESS, WHOLENESS, IMPLICATE ORDER & BEYOND
 
