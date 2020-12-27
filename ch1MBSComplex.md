@@ -470,273 +470,283 @@ It is our birth right and legacy as human beings to do that too.
 The more degrees of separation the easier it is to become a quantum observer.
 As you untangle yourself from everything that will give you the choice to perceive from a place of non-definition.
 DNA has a light frequency in it beyond our understanding.
-Our consciousness can engage the unseen world and by using mystical linguistics our knowingness  can expand.
+Our consciousness can engage the unseen world and by using mystical linguistics our knowing can expand.
 As unentangled observer,
 no charge,
 no polarity can influence you.
 You have the unlimited point of view,
-in sacred neutrality where all information flows as an experience in expansion of your knowingness.
+in sacred neutrality where all information flows as an experience in expansion of your knowing.
 This is when the mystical becomes the norm.
 
-Q: Can the unentangled observer be implicate and explicate at the same time? Yes,
-you don’t have to have an explicate explanation as a prerequisite to the implicate order.
-Unentangled observer is a coined phrase by Andrew,
-solely as an expression for spirituality,
-to understand the Akashic Records as an information sorting system or a psychic data storage.
-Every time the quantum field is accessed and observed it creates a marker point in time and no time that the implicate and explicate order is no longer defined separately but viewed simultaneously.
 
-Q: In the Union & Communion Collective Consciousness Strike Revocation you talk about MARKER POINTS IN TIME,
-can you elaborate? You call back all MARKER POINTS IN TIME in which you were a fixed point in space time for massive spiritual resolutions.
-When you became a fixed time in spacetime all of your simultaneously existing selves could tune into your fixed point,
-finite point in time.
-Those would be moments where the universal paradox,
-everyone was trying to resolve at once.
-Those particular marker points in time could be many eras of light apart or representing a marker point in an era of light in which you became an Apex of your DNA lineage of registry.
+An unentangled observer may be implicate and explicate at the same time.
+You don’t have to have an explicate explanation as a prerequisite to the implicate order.
+Every time the quantum field is accessed and observed,
+the access and observation creates a marker point in time and no-time that the implicate and explicate order is no longer defined separately but viewed simultaneously.
+You can call back all marker points in time to which you are a fixed point in space-time for spiritual resolution.
+When you become a fixed moment in space-time all of your simultaneously existing selves can tune into your finite point in time.
+Those particular marker points in time could be many eras of light apart,
+or the could represent a marker point in an era of light in which you became an apex of your DNA lineage of registry.
+You could liken it to puberty &mdash;
+that would be a marker point in time.
+The era of innocence ends.
+The adult with miles to go before it sleeps,
+and promises to keep,
+to borrow from Robert Frost,
+emerges.
+It’s a marker point in time,
+because a greater form of time stamping is created.
 
-Q: Can you give us an example of that please? From the human side of the experience you could liken that to when you are a teenager and you move into puberty – that would be a marker point in time.
-The era of innocence ends and the I AM is fully involved even though traumas could have happened at an earlier age.
-It’s not a milestone but a marker point in time in which a greater form of timestamping is created so self or outer observers to understand the evolution the DNA is going through.
-As we age the DNA is constantly evolving.
-Another example would be the harmonic convergence in the 80s that was a marker point in greater time.
-This is also when we create high frequency light memories influencing future I AMs.
-Marker points in time can be unique experiences that allow greater lineage evolution further down the linear and non-linear dates.
+Sound is a form of light.
+Light makes up memories.
+Memories can be changed.
+Yes
+&mdash;
+memories can change.
+We can change our memories.
+We can change our past.
+This is the power given to every one of us,
+but few access it it a lifetime.
+It's just another forgotten part of the grand being we call soul.
 
-Q: Would your CONTRACT REVOCATIONS work with regards to that? Yes,
-they are another example for markers in time,
-choice points in your personal evolution.
-These revocations and invocation are a set of unique healing documents created by Andrew specifically to claim back your sovereignty from all kinds of distorted manipulation and assist you getting back onto the path of self-healing and self-mastery.
-A name it to claim it system,
-using the sound of your voice to disentangle from the system of domination and control.
-Sound is a form of light and light makes up memories which can be changed.
-Science is theory at this point in time on how memories truly work.
+The study of mnemonics is incorrect.
+The scientists understand the chemical part of memory,
+but not the light part.
 Past,
-present or future memories,
-they are all frequencies of light.
+present,
+or future memories are all frequencies of light.
 When we watch a video it is a slice of time.
-When we create a document or read out loud with power behind it that is a slice of time.
-That is making an intent and imprint in us that has borders and boundaries to not allow beings of forced evolution into your frequency.
-It enforces the borders and boundaries saying that:
-I am a match for global dreamtime awakening.
-
-I am a signature frequency match for my own dreaming self.
-
-I am a match for my own healing and mastery.
-
-I am a match for union and communion
-I am not a match for hate and war.
-
-I am not a SIGNATURE FREQUENCY MATCH for bad relationships in my life.
+When we create a document,
+or read out loud with power,
+these are slices of time
+&mdash;
+we gather and form intent and imprint in us that has borders and boundaries to not allow beings of forced evolution into your frequency.
+*It enforces the borders and boundaries saying:
+I am a match for global dreamtime awakening;
+I am a signature frequency match for my own dreaming self;
+I am a match for my own healing and mastery;
+I am a match for union and communion;
+I am not a match for hate and war;
+I am not a signature frequency match for bad relationships in my life.*
 
 This is what these revocations are for and if you read them from the heart,
 from a place of power,
 expanding the wholeness that is you,
-bringing the fullness of your sacred discipline and your sacred genius to not only mean what you say but to transfers what science says about engaging your placebo that truly empowers this reality.
-Look up PLACEBO and truly ask yourself what it means to you? Look at these words in a different format and see what it creates the next time you choose to read them.
-
-The advice and challenge to you is to read them out loud as often as you can.
+bringing the fullness of your sacred discipline,
+your sacred genius to mean what you say.
+Read them out loud as often as you can.
 Once you have found the power in your voice,
-begin to record them.
-For then when you relisten in your deep,
-meditative state,
-hearing your own version of power,
-you are presenting your own signature frequency to that being of the past who has raised that frequency,
+record them.
+Listen is a deep meditative state.
+Hear your own version of power.
+Present your own signature frequency to that past incarnation of you and raise that frequency,
 that emanation of light,
 through sacred discipline and choice.
 These are choice points,
-markers in time  to understand that you are projecting to a future version of yourself who may not be in that power or ready to get to the next level.
-By hearing through their own voice and their own knowingness realising that they must change the way they present themselves to themselves in a meditative moment.
-Introduce yourself to yourself with this method and you begin to learn,
-you are your greatest teacher,
+markers in time.
+They project to a future version of yourself who may not be in that power or ready to get to the next level.
+Introduce yourself to yourself with this method and you begin to learn you are your greatest teacher,
 you are a signature frequency match for what you focus on.
 You are a match for great change when it has potent concepts behind it that directly connect to you.
 By way of these tools,
 powerfully applied in the physical present moment,
-we make a conscious choice to be the unentangled observer to interpret more data and data sets at a quantum or SUPER ILLUMINAL THINKING level through enforcing and re-enforcing our sovereignty as divine co-creative celestial beings of the now .
+we make a conscious choice to be the unentangled observer,
+to interpret more data and data sets at a superluminal thinking level,
+enforcing our sovereignty as divine co-creative celestial beings of the now.
 
-Q: Is the unentangled observer always neutral? Neutral can be such a limiting word.
-The unentangled observer is not attached to information or the flow of the information and its internal processing systems does not get bogged down with the flow such as going into attachment and overwhelm of information.
-For instance an empath would be an entangled observer as they do not have control over the flow.
-Until we become a practiced version of ourselves who can also be the unentangled observer,
-inside us simultaneously,
-we will impact on situations purely through observation.
-The next level beyond that is where we create another neutral observer,
-that is external of us,
-inside the conscious energy field or the holographic field itself.
+
+The unentangled observer is not attached to information or its flow.
+Until we become the unentangled observer,
+we impact on situations purely through observation.
+We create another neutral observer external to us after this.
+We create it inside the divine hologram.
 We raise our light frequency to create that anima part,
 reaching towards the celestial medium journey,
-increasing your frequency until you are the celestial medium.
-This is one of the parts that hasn’t been raised yet in any scientific or spiritual debates.
+increasing our frequency until we are the celestial medium.
+This hasn’t manifested in the human information field yet.
+Nobody in science or spirituality is talking about it.
 
-Q: How does judgment come into the observer discussion? By obtaining the unentangled observer position we can ensure that our perception is not tainted by any of our value judgments.
-JUDGMENT is ultimately the attachment to this  3D reality to define the 3D narrative.
-In order to stop the thinking that creates the thoughts,
-the memories we are continuously reverting back to as an experience we need to practice the unentangled observer.
-As we practice we can achieve a non-judgmental state,
-a non-competition,
+One might very easily have questions about judgment here.
+How do you participate in family,
+community,
+economy,
+government,
+and world affairs as an unentangled observer?
+Suspend judgment.
+Judgment is an attachment to this divine hologram we are born into.
+It's also a petition for experience.
+This is our unconscious understanding of irony.
+In order to detach we need to practice the unentangled observer.
+We can achieve a non-judgmental state,
+non-competition,
 equal co-creation,
-non-hierarchical order as the emanation equation.
+with non-hierarchical order.
+It is our natural state.
+
+
 Judgment is a very unique perspective.
-There are certain states of awareness that use judgment even if they are very high frequency.
+There are certain high states of awareness that use judgment.
+Judgment is an ongoing challenge all consciousness is going through.
+Making something absolute is necessary to solidify concepts,
+but it can prevent greater states of awareness.
+Judgment is required to materialize concepts from the sea of awareness.
+This is another way of looking at materialism.
+It's not all just cash and cupidity.
+There are certain highly aware beings who are very judgmental.
+They've gone so far into concepts of good or bad it's their way or no way.
 
-Q: Can you give us an example of those high frequency judgments? We have forced evolution with a variety of species behind it who are very judgmental,
-high technology,
-very spiritual but they are not in 6th or 7th  density but they have some of the teachings that can make it look like they are there.
-Judgment is one of those ongoing challenges all consciousness is going through because of making something absolute is a necessity to solidify concepts but it can be the linchpin that can defeat greater states of awareness.
-It means that judgment is required to solidify concepts within the sea of awareness.
-Next level of awareness is to not make the judgment absolute so conclusions have an open-endedness.
-There are certain high aware beings which are very judgmental.
-They have gone so far into the realms of being good or bad that it is their way or the highway.
-Ie Inner Earth beings having philosophical debates over ideology about universal and galactic implementation.
-Who do we teach? How do we teach the next level of era of light? This is why celestial mediumship is so important now.
-We need representatives in the Inner Earth,
-we need to be involved in all the density layers of negotiations.
 
-LOCALITY & NON-LOCALITY
-Q: How can Locality & non-locality modify non-linear and linear concepts? A mystical experience for instance is when having a non-local experience in a linear location with a time stamp.
-This is when the DNA instrument of experience is going from chemical to super illuminal creation as part of the DNA vehicle’s capacity to perceive,
-receive and know higher density frequencies through the body’s design.
-Remote viewing an ancient place,
-going through Akashic Records,
-being under hypnosis in a QHHT session or experiencing Lucia Light healing is being in a spacetime location whilst being able to have non-local,
-non-linear based experiences.
+## Traveling
 
-Q: Is this being the entangled and unentangled observer at the same time? Not necessarily,
-no.
-In some experiences you can be an entangled observer in a spacetime locality and non-locality at the same time.
-Other experiences are where one could be the unentangled and entangled observer at the same time for both,
-specific explorations and to make pattern recognition.
-It’s like you can observe within an experience and change it by engaging with it out of choice.
 
-Q: What is the observers position when remote viewing? With regards to remote viewing entangled or unentangled depends on what modality of remote viewing you are doing.
-In the standard military version it is still an entangled observer.
-The better you get,
-you start disregarding the dogmas of common remote viewing techniques,
-you technically become an unentangled observer.
-You still have to have the conscious awareness techniques to enter the unentangled observer out of knowledgeable choice with an agenda behind it.
-Unentangled observers are not supposed to have short term agendas as this can change things for the wholeness of reality.
-It is ok for individual change.
-It is very easy for an unentangled observer to go to a non-locality time space,
-receive all the potentialities and then come back and change them.
-We can also create an anima,
-an energy light body,
-that can travel through alternate physics of space and time that are memories.
-Other times,
-in the greater explicate order,
-we can make a body that is physically exploring infinite and non-memory space.
-In the example of entangling as an empath you are localised,
-implicate order with no time stamp.
-When we reach that higher state of consciousness we can go to remotely view another place,
-like Arcturus for example.
-If you can believe you can do it,
-you can! Getting into the space ship to go to Arcturus is a location based experience in the ship itself but we can generate that experience without even a ship.
-We create the light body that becomes the ship.
-
-Q: Where did the unentangled observer technology ORIGINATE from?  That was a Lemurian creation.
-A speciality within Lemurian DNA combined with the ancient Lemurian city technology of deep observance,
+There is a lot of past technology resurfacing in the field of consciousness.
+Remote viewing is an example.
+This is when the consciousness is trained to go somewhere and see and hear.
+The body is localized but the *I am* goes somewhere else in space or space-time.
+You might know this from films like *The Men Who Stare at Goats*.
+They mocked it in the film,
+but in real life it has been used by military and intelligence quite effectively.
+It precedes this modern utility,
+of course,
+and has been a part of human activities for quite some time,
+from tribal shaman to ancient priest classes in bygone times.
+It has its roots in Lemuria,
+the ancient civilization that existed alongside Atlantis.
+They pioneered the technology of the *unentangled observer*,
+a specialty within Lemurian DNA combined with the ancient Lemurian city technology of deep observance,
 like psychic telescopes,
 so they could remotely view anyone in the multiple universes as unentangled observers.
-When they became very good at it it became a DNA based experience that they would pass on in lineages,
+When they became very practiced at the unentangled observer,
+it became a part of their DNA and they passed it on in lineages,
 like having an invisible cloak.
-That DNA became sellable to species who were spiritually,
-physically and emotionally not ready for it but they still procured that DNA bought or stolen.
-All this created the DNA wars and why DNA farming exists today.
-That original gene of the unentangled observer was added to other species through DNA interbreeding.
-These are considerations that are important to be included  in a possible dialogue between science & spirituality in order to establish a revised set of quantum laws as a basis of creating a new world view.
-The new terminology and set of words that are being put forward here can act as new denominators for more debate and meaning to be established.
-KJ Rowland,
-Starwars as examples
-Q: What was the UNENTANGLED OBSERVER TECHNOLOGY  used for?  It was used for DNA farming.
-The unentangled observer technology was a DNA experience that could be traded with lineages and species that were compatible with that DNA change to ramp up the skill sets and jump into higher levels of awareness.
-It came with a price if they were lower density species as that upgrade often required losing their sex organs or making other major alteration to the nature of their experience.
-As an unentangled observer you don’t have to have a body.
-When I say unentangled observer I am talking about  an experience,
-that becomes a DNA memory,
-that can then be taken out of a lineage and inserted into another foreign DNA structure to add to the experience of that lineage depending on compatibility.
+That DNA became commercialized in the galactic genetics market
+&mdash;
+the primary exchange in the galaxy and the universes,
+by the way
+&mdash;
+to species who were spiritually,
+physically,
+and emotionally not ready for it,
+but they procured the DNA anyways,
+bought or stolen.
+This created the DNA wars and it's why DNA farming exists today.
+The original gene for the unentangled observer was added to other species through genetic mixing.
 
-Q: How did the first unentangled observer technology get created which was then used for the DNA trade? The original species that got unentangled observer DNA began the journey of losing their I AMness.
-They had left their home worlds,
-entered the void between galaxies and universes and became what I call – THE STALKERS OF THE VOID.
+
+The unentangled observer technology was a DNA experience that could be traded with lineages and species compatible with it.
+It came with a price.
+Some species lost their sex organs and were forced to clone to reproduce.
+It depended on the level of density of the species that imported the genetics of the unentangled observer.
+The natural and supernatural are the same thing.
+The preternatural is the result of gross violations to the natural and supernatural law.
+This is a self-governed reality.
+The divine hologram is perfect.
+It is the arrogance of sentient beings that produces miscreants,
+and miscreants are the doorway to the preternatural.
+
+An unentangled observer doesn't require a body.
+An unentangled observer is an experience which becomes a DNA memory.
+The DNA memory can be extracted from a lineage and inserted into another.
+The new lineage *inherits* the aspect and experience.
+Epigenetics is the real galactic mercantilism.
+The original species to get unentangled observer DNA lost their *I am* sovereignty.
+It was a long process,
+as all things related to genetics are.
+They left their home worlds and entered the void between galaxies and universes and became the *stalkers of the void*.
 Out there,
 at the edges of nothingness,
-no longer being attached to any time space localities they could send back the remains of their consciousness which allowed them to observe their home worlds through many points of vision.
-After collecting DNA memories and all the data of observation they would then return from the void space.
-As they advanced in this process they could remain in the void space,
-create and send data streams directly back to a form of DNA technology that would absorb the live stream data of an unentangled observer.
-That’s how they first gained the capacities of being unentangled observers.
-After that they started trading the DNA to other species.
+no longer attached to any time space localities,
+they could send back the remains of their consciousness to observe their home worlds through many points of view.
+They collected DNA memories and data of observation then returned from the void space.
+As they advanced in this process,
+they could remain in the void space,
+and they could create and send data streams directly to a form of DNA technology that absorbed the *live stream* data of an unentangled observer.
+That’s how they first gained the capacity to be unentangled observers.
+After that,
+they started trading the DNA to other species.
 
-As we said a fully fledged quantum observer may not have a physical body and is not open to being predictable to others.
-A lot of beings have reached the level of awareness where they do not need a body to have an experience.
-Many of the Hollow Earth beings who live in the space between the atoms are operating at that level.
-They do have agendas though spread throughout implicate order time.
-That is why DNA farming is so unique.
-These  wholly unentangled agenda driven observers,
-can create a light body within the various implicate orders to transfer data back to them through 2,
-3 or more degrees of separation.
+
+
+A pure quantum observer doesn't need a body and is not predictable to others.
+Many beings have reached the level of awareness at which they don't need a body to have an experience.
+There exist hollow earth beings living in the space between atoms by unentangled observer genetics.
+They spread agendas throughout implicate order time.
+This is why DNA farming is so unique.
+These wholly unentangled,
+agenda-driven observers can create a light body within the various implicate orders to transfer data back to them through two or three or more degrees of separation.
 They themselves remain unentangled,
-difficult to impossible to observe,
-whilst spreading their agenda through many frequencies of time .
-This is the abuse of the quantum laws.
-Let’s say there are unentangled quantum observer light bodies in 1330 in Italy and it is 2020 now.
-How many degrees of separation are there between them and us? A lot.
-Every generation is a separation of density which allows them to impact on the past which means the past is manipulable as well as any changes immediately alter a potential future,
-thus why Timeline manipulation is so easy to do.
-DNA farming is manipulating how memories are stored in light in the past and how they are  then passed on to our teachers and historians and in our books.
+and difficult to nearly impossible to observe,
+all the while,
+spreading their agenda through many frequencies of time .
+This is abuse of the quantum laws.
+Let’s say there are unentangled quantum observer light bodies in 1330 in Italy and it is 2021 now.
+There are many degrees of separation between them and us.
+Every generation is a separation of density.
+This allows any generation to impact on the past.
+The past is manipulable.
+Any changes immediately alter a potential future.
+This is why timeline manipulation is so easy to do.
+DNA farming is manipulating how memories are light-stored in the past,
+and how they are passed on to our teachers,
+historians and books
+&mdash;
+our official record.
 
-Q: How does light memory get stored and how does it distort history? Light memory storage is when there is a point where the experience is so high in frequency,
-vibration and harmony,
-where finite chemicals can no longer be sustained.
-It is very easy for an untangled observer to tune into this level of high intensity bright light,
+Light memory storage happens when an experience is so high in vibration and harmony that finite chemicals can no longer be sustained.
+It's easy for an untangled observer to tune into this level of high intensity bright light,
 where a memory is fractured,
-fractualised,
-unfractured state of existence,
-easily manipulable.
-When they tell the story one or another way,
-or it is not in their memory at all the past has ultimately changed based off how the lineages have pre-programed memories of them that create the entangled reality of birth.
-This then allows the global narrative to take form as the implicate order that we accept through our judgment journey.
-History has been heavily manipulated to the effect that only 10 or so percent is truth.
-We all have spiritual contracts that define those memories as a truth in order to participate in that implicate order as a finite being on the journey back to infinite.
+fractalized,
+and easily manipulable.
+When they tell the story one way or another,
+or it is not in their memory at all,
+the past has changed,
+and our existence here assumes the change from the entangled reality of birth.
+The global narrative takes form and becomes the implicate order we accept through our judgment journey.
+History has been so heavily manipulated that maybe ten percent is true.
+We all have spiritual contracts which underwrite the memories as true.
+This allows us to participate in the implicate order here as a finite being on the journey back to the infinite.
 This is why we go through the great forgetting.
 
-Q: Is this because in quantum realm there is no locality and non-locality,
-it’s all one,
-one hologram? Yes,
-but – it is an infinite universe  with all different levels of unique expression in form and none form.
-Higher density beings like the high frequency Andromeda species came here about 20 Mio years ago to protect this space.
-In their super high frequency state they were not attached to spacetime physics in any form.
-They had to lower their frequency to create lower density manifestations of themselves with an agenda that had even lower density points of experience.
-Instead of us ascending up they were descending down and made many trees and branches to themselves even though they had already left this spacetime locality.
+In quantum realm there is no locality and non-locality.
+It’s all one divine hologram,
+an infinite universe with all different levels of unique expression in form and non-form.
+The perspective of the implicate and explicate order ends.
+This is the void space.
+It's part of the universal hologram.
+A barren place,
+hence the name
+&mdash;
+the void space.
+The implicate and explicate unfolds in the the sea of consciousness.
 
-Q: What is beyond the perspective of the Implicate & Explicate order ends at a certain level of density and frequency? This would be the void space.
-The void space is still part of the universal hologram there is just nothing in it.
-The implicate and explicate unfolds in the Ocean of Awareness and the Sea of Consciousness.
-They become the portals for transmutation and transformation for consciousness in the Ocean of Awareness to becoming consciousness in an animated lifeforce with purpose and agenda.
+The unentangled observer appears in many forms.
+Cats were created from the ground up as a skinsuit so beings could learn unentangled observation.
+There are many skinsuits that are unentangled observers.
+Certain gut gnomes we have can be unentangled observers.
+Cats are the most prolific,
+common not just on this world but millions of others as well.
+Jelly fish and certain breeds of coral can be unentangled observers,
+to give a couple more examples.
 
-Q: Why do you refer to CATS as unentangled observer technologies? That was something created as a skinsuit ground up so you can go and learn long term unentangled observer skills.
-Mastering the capacity to be there by using the cat’s unentangled DNA instrument of experience to modify DNA and become stronger and stronger to use that technology.
-Your lineage and offspring would have that as their legacy.
-Dogs can be too but they have a very different association to human bonding.
-There are many skinsuits that are unentangled observers like certain gut gnomes we have can be unentangled observers.
-I say cats because they are a common thing not just on this world but on millions and millions of other worlds.
-Other unentangled observer technologies would be a jelly fish,
-certain breeds of coral can be unentangled observers.
 
-‘A study by scientists from the Max Planck Institute for Human Cognitive and Brain Sciences in Leipzig,
-has shown that several seconds before we consciously make a decision its outcome can be predicted from unconscious activity in the brain’
-Q: What is that phenomena of this prediction and how does it fit into the implicate & explicate order mechanism?  The conscious energy field is connected to our PRECOQNITIVE WORKFORCE which is part of our implicate & explicate order.
-When we consciously entangle with that workforce those few seconds become infinite.
-One second in the quantum world is infinite and yet you have several seconds in the physical world to allow the precognitive workforce,
-that has an educated and practiced intention behind,
-to align natural synchronicities and pattern recognition and create a much more solidified effect in the entangled and unentangled processes.
+## Pre and Post Cognitive Workforces
 
-Q: What do you mean by Precognitive workforce? The  I AM precognitive workforce is a term covering all versions of yourself that are simultaneously existing in time and no time and that have earned,
-learned and re-learned the rights of awareness.
+Several seconds before we consciously make a decision its outcome can be predicted from unconscious activity in the brain.
+The conscious energy field is connected to our precognitive workforce,
+which is part of our implicate and explicate order.
+When we consciously entangle with that workforce,
+those few seconds become infinite.
+One second in the quantum world is infinite,
+yet you have several seconds in the physical world to allow the precognitive workforce,
+that has an educated and practiced intention behind it,
+to align natural synchronicities and pattern recognition to create a much more solidified effect in the entangled and unentangled processes.
+The  *I am* precognitive workforce is a term covering all versions of yourself simultaneously existing in time and non-time and that have earned,
+learned,
+and re-learned the rights of awareness.
 As a spiritually aware and natural co-creative evolutionary being,
 existing in all time space equations and beyond,
-you are assisted by a masterful pre- and post cognitive workforce,
-as your birthright and legacy.
-By applying responsibility at the level of your awareness,
-together with your invisible workforce you can make a great impact on the themes and ideologies you wish to promote and impact on as part of the great dreamtime awakening.
+we are assisted by a masterful pre and post cognitive workforce,
+as our birthright and legacy.
 
 Q: In the case of an ALZHEIMER patient,
 when they revert back to being a child,
@@ -843,13 +853,13 @@ We all can do it and probably won’t realise when we do it.
 Often clarity comes in dream space,
 when the mind is out of the way.
 The celestial medium of peace is functioning in many scores of dreamworlds with many of the pre- and post cognitive workforces creating the language of masterful manifestations of visions.
-The data as part of the wave form can ultimately work as the precognitive workforce to manipulate how the data will be perceived at its endpoint in spacetime.
+The data as part of the wave form can ultimately work as the precognitive workforce to manipulate how the data will be perceived at its endpoint in space-time.
 The ocean of awareness is the technical source point of the flow of data that may or may not generate into the sea of consciousness,
 an observable time space reality.
 It allows the data to flow to the sea of consciousness in a fixed time space narrative which then allows consciousness to observe it.
 Consciousness in the sea of consciousness can both be entangled and unentangled,
 manifested and non-manifested in time.
-In the sea of consciousness quantum physics becomes confusing because you are still in the ocean of awareness and part of you might still consciously entangle with the ocean of awareness as a greater observer as spacetime narrative.
+In the sea of consciousness quantum physics becomes confusing because you are still in the ocean of awareness and part of you might still consciously entangle with the ocean of awareness as a greater observer as space-time narrative.
 This is how the ANGELIC FORCES WORK?
 Let’s go back,
 thousands of eras of light when the universe was not as big as it is now,
@@ -1016,7 +1026,7 @@ The celestial mind is operating on a much longer and expansive view of time and 
 
 THE LEVELS OF AWARENESS
 1.
-THE OCEAN OF AWARENESS – THE UNIVERSAL HOLOGRAM
+THE OCEAN OF AWARENESS &mdash; THE UNIVERSAL HOLOGRAM
 The consciousness outside of time we can call it the OCEAN OF AWARENESS - THE UNIVERSAL HOLOGRAM -  that has the individual universal experience within.
 The universal experience will become a microbeing on a celestial planet that chooses forgetfulness to become finite as part of a universal evolving experience.
 We can call that the AVATAR which operates as many I AMs inside and outside of time.
@@ -1038,7 +1048,7 @@ The Ocean of awareness generates one particle which is technically the whole hol
 So the particle can be tens of millions of lineages and tens of billions of worlds.
 An individual observer works up the scale of observation that says: I am in this lineage that is this particle on this planet but it is also part of a solar system which makes it a bigger particle so on and so forth.
 Our local hologram is one particle and we are particles inside that one particle.
-As individual particles we can perceive the next particle – the solar system particle.
+As individual particles we can perceive the next particle &mdash; the solar system particle.
 That’s what I call a solar system cork screwing through time.
 
 Q: What does ‘A SOLAR SYSTEM IS CORK SCREWING THROUGH TIME’ mean? which is on a galactic groove,
@@ -1049,16 +1059,16 @@ where the solar system as a particle is one part of a giant galactic particle.
 This then gives us access to the grand ocean of awareness through conscious entanglement with it.
 There we have the ONENESS concept.
 
-Q: Can you give an example on when we are working with The Ocean of Awareness? When you are doing the GOLDEN TUBE OF CONNECTION teaching – connecting from the body to the sun you are achieving the solar system particle awareness.
+Q: Can you give an example on when we are working with The Ocean of Awareness? When you are doing the GOLDEN TUBE OF CONNECTION teaching &mdash; connecting from the body to the sun you are achieving the solar system particle awareness.
 That’s why you connect to the sun on the other side of the tube and allow yourself to pulsate back and forth.
-The sun is the portal into the next form of awareness – THE CELESTIAL COMMERCE MARKET AGAIN…
+The sun is the portal into the next form of awareness &mdash; THE CELESTIAL COMMERCE MARKET AGAIN…
 In the DRAGON REVOCATION we talk about going beyond our sources light.
 We can go to other Oceans of Awareness that are technically still entangled with our Universal Ocean of Awareness through aunt and uncle lineages of sources.
 Many sources have divested into different ways of experiencing.
 
 2.
-THE SEA OF CONSCIOUSNESS – THE TIME SPACE HOLOGRAM
-One scale lower is the SEA OF CONSCIOUSNESS - THE TIME SPACE HOLOGRAM -  that allows you to incarnate into a gender of NARRATIVE TIME (COLLECTIVE CS) – bodies for unique experiences that amplify the ocean of awareness to rediscover itself as one.
+THE SEA OF CONSCIOUSNESS &mdash; THE TIME SPACE HOLOGRAM
+One scale lower is the SEA OF CONSCIOUSNESS - THE TIME SPACE HOLOGRAM -  that allows you to incarnate into a gender of NARRATIVE TIME (COLLECTIVE CS) &mdash; bodies for unique experiences that amplify the ocean of awareness to rediscover itself as one.
 In this SEA OF CONSCIOUSNESS you can have more than one avatar as you can be thousands of beings and being in thousands of places and spaces forward and backwards throughout all time space,
 history and universe.
 You have to see it like a giant network pattern of choice operating at a much wider timescale versus a shorter timescale.
