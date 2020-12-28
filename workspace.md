@@ -1,127 +1,4 @@
-Q: In the case of an ALZHEIMER patient,
-when they revert back to being a child,
-what happens in their brain? Is that a form of Bilocation,
-locality & nonlocality There is a breakdown of chemical memory association in the file tree.
-This is where the skull cap,
-top of the crown,
-tells the spirit where all the files are stored inside the body.
-The chemical memories are corrupting the file tree because the brain itself has broken down through lesions.
-Cellular pathways that were originally created don’t have energy to support the brain.
-There is a breakdown in the genetic journey as well as a part of the life & death contract.
-A significant amount of distorted memory before going into the death process will trigger a very different form of life review.
-When the patient reverts back to younger versions of the self it is a co-existence in time by technically bilocating in time.
-It skews the light memories where the light body doesn’t identify to a single point of time anymore.
-That is the corruption of the chemical memory,
-part of the time stamping.
-This disease can be contracted out in the foetus of the womb planning or DNA based.
-There are certain DNA skinsuits with a prevalent experience in it and the foetus knows that before it goes into the DNA instrument experience.
-There is loads we can do to prevent that but we don’t have the proper gut gnome from a very young age to support brain health.
-Then there is the mental,
-spiritual,
-physical drama & trauma that attacks the brain even more.
-The life journey can be cut radically short by the manipulation that was done to the DNA about 35,
-000 years ago when they manipulated the brainstem itself,
-where the motor cortex functions had an earlier ending date than the actual extended life process.
-Many of us could live 200-300 years if we would have proper shamanic trauma resolution to not burn out the neuro pathways.
-Optimal gut health is a precursor to avoid the plaque built up which causes diseases like Alzheimers.
 
-The Instant healing exploration HARNESSING THE POWERS OF THE HOLOGRAPHIC BRAIN ON THE ORGANISM….
-allows us to make the leap of faith and acknowledge that conscious is entangled and unentangled with the reality and the holographic model allows for both,
-implicate and explicate order simultaneously.
-
-Q: What are universal laws and what is their relationship to unentangled observers? Karmic Resolution,
-Karmic Debt,
-fundamental experiences that the varieties of the I AM share as the common experience of evolving as a being of light.
-There are new laws that are being created all the time in other places and spaces but may or may not apply in our universe.
-It is all about the volume of individuals who are part of the Ocean of Awareness choosing to experience a law as a fundamental value of experience from one to the next era of light.
-Unentangled observers do not have to abide to universal laws.
-That is the whole point of entering that state of neutral observation.
-
-Q: You mention Egg & Sperm technology as one of the Universal Laws? Universal laws come down to egg & sperm technology or other birthing form technologies that generate DNA memories or lineages differently.
-The birthing technologies determine how the universal laws are used differently and as such every birthing technology has different quantum laws.
-The sperm,
-seed,
-egg technology allows access to the infinite blueprint or the planning stage.
-
-Q: What is meant with Egg & Sperm technology?  Sexuality and Prayer are built into our DNA that this reality has given us to have coherent resonance with geometric holograms of information that we can decode,
-process and use to our awareness advantages.
-Procreational energy for non-procreation.
-The journey into the greater awareness is understanding how to use your energy as a conscious being of choice.
-We start in this bliss state where the infinite code is in the celestial mediumship.
-The celestial medium steps down into the foetus and then goes through the laws of forgetting so it doesn’t have access to its infinite sight.
-It then is a part of this hologram as a non-infinite being who is on the journey to celestial mediumship again.
-We are forever trying to get back to that place of bliss and joy.
-All the spiritual teachings since the dawn of spirituality have a bliss teaching.
-Why? Because it is our fundamental part of our growth,
-it is our birthright.
-Inside that foetus of a womb state is that non-locality teaching.
-We are both and what makes us any different than the foetus? The memories we have stored in light.
-As a foetus,
-in our blueprint we have the infinite set of memories and  potentialities we have created.
-The actual linear and the non-linear memory creation is being processed as a being is going through all forms of awareness.
-The I AM data unpacks and decodes of itself during different eras of its history.
-Then we add the chemical memories which are there to enforce linear time so spiritual contracts of individuals in time can come to fruition.
-
-There are beings,
-that no longer use any form of birthing technology,
-which are pure unentangled quantum observers.
-Having said that they can use any seed and egg technology which then generates different forms of I AM technology and that’s how the 15 multidimensional beings were abusing the universal laws.
-They knew that they could separate themselves into thousands of I AM experiences and remain the unentangled observer status in various degrees of separation because they were wholly unentangled,
-conscious beings of energy alone using the laws of incarnation through technological means of interaction.
-In the ancient past cloning technology was very easy to use.
-They could easily incarnate into a dog,
-a rabbit,
-a cat and remain the unentangled observer.
-The DNA instrument will also determine the richness of the experience of the unentangled observer.
-
-Q: How would being a cat one lifetime impact on the DNA experience? By choosing to be a cat,
-after having completed war related  contracts in the past,
-she disconnected from the implicate order of repetitive karma which allowed her to have other lifetimes of incarnation separate of the karma that was created in the past.
-By leaving the implicate and explicate order and becoming a completely unentangled observer in the natural food chain,
-a separate karmic interaction,
-beings of the past created debt that was put onto lineages.
-The debt was no longer connected to that energy being but the lineage that they were in.
-That’s how lineage based debt was created.
-Using the unentangled observer technology not to be found out and use this agenda that allowed the karma to be nullified and not follow them through history.
-Cats don’t usually take on the karma of genocidal humans or do they? They literally dodged their karmic responsibilities by leaving the chain of custody of karma which created the debt passed on to their future generations*
-The double split experiment in modern physics demonstrates that light and matter can display characteristics of both classically defined waves and particles.
-
-Q: What creates the interference that collapses the particles back into the wave and cancels them out? In the Ocean of Awareness,
-which we also call THE LIVING ALGORITHM OF LIFE,
-all the data is conscious.
-You become the living Algorithm of life when you are in a DNA skinsuit that is regularly achieving near super or super illuminal thinking.
-The algorithm is a fundamental part of the I AM technology unfolding as you grow older and become more experienced running the DNA skinsuit at its higher functionalities.
-
-Q: What would be an example of becoming the living algorithm of life? When you act as the living algorithm of life,
-with super illuminal thinking,
-you can create a signature frequency where others can palpably sense the meaning of your delivery.
-The nature of the anomaly,
-AB,
-him being fixed and not fixed in time.
-In this refined state of beingness he enters the energy frequency that is the living algorithm of life and still stays grounded in his body explaining subject matters in the 26 letter encoded English alphabet.
-We all can do it and probably won’t realise when we do it.
-Often clarity comes in dream space,
-when the mind is out of the way.
-The celestial medium of peace is functioning in many scores of dreamworlds with many of the pre- and post cognitive workforces creating the language of masterful manifestations of visions.
-The data as part of the wave form can ultimately work as the precognitive workforce to manipulate how the data will be perceived at its endpoint in space-time.
-The ocean of awareness is the technical source point of the flow of data that may or may not generate into the sea of consciousness,
-an observable time space reality.
-It allows the data to flow to the sea of consciousness in a fixed time space narrative which then allows consciousness to observe it.
-Consciousness in the sea of consciousness can both be entangled and unentangled,
-manifested and non-manifested in time.
-In the sea of consciousness quantum physics becomes confusing because you are still in the ocean of awareness and part of you might still consciously entangle with the ocean of awareness as a greater observer as space-time narrative.
-This is how the ANGELIC FORCES WORK?
-Let’s go back,
-thousands of eras of light when the universe was not as big as it is now,
-maybe 200 galaxies in it.
-The Ocean of Awareness was a very small network then.
-In order to get to know more about itself  and to make a Sea of Consciousness it generated a 7th dimensional galactic seed planet,
-EARTH.
-A place where the Ocean of Awareness can have direct manifestations,
-change and adjust the laws of quantum physics,
-entangled and unentangled observer.
-There it could create matter based lifeforms on mass scales to begin to populate new galaxies as part of the greater exploration of where light can go into the void of experiences? Those lifeforms would go to the Ocean of Awareness to find meaning and to create agendas in the sea of consciousness.
-Source can be observed as a hologram through the egg & sperm creation as all of the information is already there to form new parts of the hologram through experiencing new life.
 
 Q: When talking about algorithms you also mention DATA? Data is a finished algorithm.
 An ongoing algorithm is the conscious processing power CPU of the chemical memory being made into light memory.
@@ -173,7 +50,7 @@ We are free willed encoded beings of light functioning in all kinds of different
 Our world is based on a 100% free will planet,
 universe,
 galaxy,
-solar system and the initial game plan that you co-created in the foetus can be changed at any time.
+solar system and the initial game plan that you co-created in the fetus can be changed at any time.
 Everything is synchronistic with the celestial minds holding space for us.
 This I AM being manifested in this density is mutually co-creating with our higher self and we are the boots on the ground in a localised space time event.
 Our memories are stored in light and we share those memories within this hologram of light and sovereign space of power.
@@ -240,7 +117,7 @@ That 75/25 percent ratio has been in existence for an extremely long period of t
 There are always new souls coming in from the different galactic life form nurseries.
 They get a light body and then they need to extend their first set of contracts to a planet,
 a solar system which determines the field of consciousness they start at.
-Do they start in the Sea of Consciousness or the Ocean of Awareness? Is their first life experience as a human being living in a tunnel in South America two million years ago praying to a false god? This process is being replicated on millions of worlds for millions of different skinsuits as this is the nature of consciousness.
+Do they start in the Sea of Consciousness or the ocean of awareness? Is their first life experience as a human being living in a tunnel in South America two million years ago praying to a false god? This process is being replicated on millions of worlds for millions of different skinsuits as this is the nature of consciousness.
 As it evolves we need to ask ourselves the question of what rights,
 duties and responsibilities do we,
 as consciousness incarnate,
@@ -276,13 +153,13 @@ The celestial mind is operating on a much longer and expansive view of time and 
 
 THE LEVELS OF AWARENESS
 1.
-THE OCEAN OF AWARENESS &mdash; THE UNIVERSAL HOLOGRAM
-The consciousness outside of time we can call it the OCEAN OF AWARENESS - THE UNIVERSAL HOLOGRAM -  that has the individual universal experience within.
+THE ocean of awareness &mdash; THE UNIVERSAL HOLOGRAM
+The consciousness outside of time we can call it the ocean of awareness - THE UNIVERSAL HOLOGRAM -  that has the individual universal experience within.
 The universal experience will become a microbeing on a celestial planet that chooses forgetfulness to become finite as part of a universal evolving experience.
 We can call that the AVATAR which operates as many I AMs inside and outside of time.
-The consciousness flow in the Ocean of Awareness allows the data to go from wave to particle,
+The consciousness flow in the ocean of awareness allows the data to go from wave to particle,
 the celestial medium to the DNA experience.
-The Ocean of Awareness is the implicate order.
+The ocean of awareness is the implicate order.
 There are different Oceans of Awareness in other universes,
 many implicate orders,
 as every universe creates different agendas,
@@ -291,10 +168,10 @@ incarnations and reincarnations.
 Not every universe uses incarnation,
 many don’t use I AMness as technology like ours with seed and egg technology.
 
-Q: How does The Ocean of Awareness work fit into the quantum theory? The  Ocean of Awareness is part of the intricate waveform quantum physics refers to.
+Q: How does The ocean of awareness work fit into the quantum theory? The  ocean of awareness is part of the intricate waveform quantum physics refers to.
 Through different levels of awareness it can be collapsed into particles as well as every particle can again be broken down into subpoints of observation.
 The particle can be one DNA lineage and all DNA lineages simultaneously based off what we choose to observe through it.
-The Ocean of awareness generates one particle which is technically the whole hologram but we perceive the hologram at different skills of awareness.
+The ocean of awareness generates one particle which is technically the whole hologram but we perceive the hologram at different skills of awareness.
 So the particle can be tens of millions of lineages and tens of billions of worlds.
 An individual observer works up the scale of observation that says: I am in this lineage that is this particle on this planet but it is also part of a solar system which makes it a bigger particle so on and so forth.
 Our local hologram is one particle and we are particles inside that one particle.
@@ -309,20 +186,20 @@ where the solar system as a particle is one part of a giant galactic particle.
 This then gives us access to the grand ocean of awareness through conscious entanglement with it.
 There we have the ONENESS concept.
 
-Q: Can you give an example on when we are working with The Ocean of Awareness? When you are doing the GOLDEN TUBE OF CONNECTION teaching &mdash; connecting from the body to the sun you are achieving the solar system particle awareness.
+Q: Can you give an example on when we are working with The ocean of awareness? When you are doing the GOLDEN TUBE OF CONNECTION teaching &mdash; connecting from the body to the sun you are achieving the solar system particle awareness.
 That’s why you connect to the sun on the other side of the tube and allow yourself to pulsate back and forth.
 The sun is the portal into the next form of awareness &mdash; THE CELESTIAL COMMERCE MARKET AGAIN…
 In the DRAGON REVOCATION we talk about going beyond our sources light.
-We can go to other Oceans of Awareness that are technically still entangled with our Universal Ocean of Awareness through aunt and uncle lineages of sources.
+We can go to other Oceans of Awareness that are technically still entangled with our Universal ocean of awareness through aunt and uncle lineages of sources.
 Many sources have divested into different ways of experiencing.
 
 2.
-THE SEA OF CONSCIOUSNESS &mdash; THE TIME SPACE HOLOGRAM
-One scale lower is the SEA OF CONSCIOUSNESS - THE TIME SPACE HOLOGRAM -  that allows you to incarnate into a gender of NARRATIVE TIME (COLLECTIVE CS) &mdash; bodies for unique experiences that amplify the ocean of awareness to rediscover itself as one.
-In this SEA OF CONSCIOUSNESS you can have more than one avatar as you can be thousands of beings and being in thousands of places and spaces forward and backwards throughout all time space,
+THE SEA OF CONSCIOUSNESS &mdash; THE time-space HOLOGRAM
+One scale lower is the SEA OF CONSCIOUSNESS - THE time-space HOLOGRAM -  that allows you to incarnate into a gender of NARRATIVE TIME (COLLECTIVE CS) &mdash; bodies for unique experiences that amplify the ocean of awareness to rediscover itself as one.
+In this SEA OF CONSCIOUSNESS you can have more than one avatar as you can be thousands of beings and being in thousands of places and spaces forward and backwards throughout all time-space,
 history and universe.
 You have to see it like a giant network pattern of choice operating at a much wider timescale versus a shorter timescale.
-The hologram is the time space equation.
+The hologram is the time-space equation.
 It is the particle,
 from the quantum physics perspective.
 The particle is everything and nothing at the same time.
@@ -330,7 +207,7 @@ It can be implicate and explicate depending on the perspective of the observer.
 
 3.
 THE MULTIVERSE
-THE   MULTIVERSE contains The Ocean of Awareness & Sea of Consciousness and hereby contains 17 universes interacting with each other,
+THE   MULTIVERSE contains The ocean of awareness & Sea of Consciousness and hereby contains 17 universes interacting with each other,
 creating the 18th in which karma will no longer be used as a debt based system.
 All debt goes to the 18th universe of creation and we will have a collective of prime creators,
 a council of many different sources running that new universe.
