@@ -2,7 +2,7 @@ Glossary of Terms
 ===============================
 
 
-#### Akashic record
+## Akashic record
 
 
 It is the cellular memory of our earth,there is a crust on our earth that is below the earth layer that is granite,granite is 65-75% crystalline,that structure in its own concept is a data storage unit as well as an interactive co-creative,spiritual,physical intra-exchange device of history,anything that has psychic record is recorded in the akashic record.
@@ -17,19 +17,19 @@ The AR is a recording of every single sentient experience in this world through 
 The solar system records all experience of all the planetary minds and all individual minds on the planet-so it’s another collective,all the stars connect to the central sun which is the collection of all experiences,which in theory is where, prime creator exists amongst all people,theAR is the web link of all life.
 
 
-#### Ancestor
+## Ancestor
 
 
 A soul family member who has passed on from living in the flesh. They live in a different frequency of time called the blue road of time
 
 
-#### Apex order of the self
+## Apex order of the self
 
 
 A form of perception one earns and learns from mystical experiences that reveal vast layers of knowingness on how the system works.
 
 
-#### Body
+## Body
 
 
 The instrument of our perception and experience
@@ -38,7 +38,7 @@ The instrument of our perception and experience
 
 
 
-#### Bilocation
+## Bilocation
 
 
 When you take out the charge and polarity and become sacred neutral it is cocreating reality. Manifesting your reality . Building the muscles and belief that it’s not for instant gratification. Through creating imagery and vision and feeling you can create other yous that are physically manifest versions of yourself. To be present in that other reality organically happens with the expansion of the muscle in the third eye. Basic form is through imagery. Perceived if you believe in it. Physically manifest in each location. Sometimes aware of it sometimes not if it becomes an overload and not required. Making a choice not to be instantly gratified in what other selves are doing.
@@ -50,13 +50,13 @@ We have built inside a dreaming body. When we reach a certain frequency of creat
 Second stage is full on simultaneous awareness of the second you. A realisation that the second you is still a singularity in a dream world, so you can be a quadality
 
 
-#### Bubble of reality
+## Bubble of reality
 
 
 We have full 100% sovereign control over this through choice. Self created. Self manifestation space . Outside of your bubble ie clouds, sea, water would be treading on another’s journey.
 
 
-#### Colloquial Now
+## Colloquial Now
 
 
 Coherent wisdom and steam of information people can tap into
@@ -67,7 +67,7 @@ The i am using is power of now to speak with verbal terminology that triggers mo
 
 
 
-#### Consciousness
+## Consciousness
 
 
 The state or quality of awareness or of being aware of an external object or something within oneself
@@ -91,7 +91,7 @@ We become the witness of our reality
 The response we chose influences how our reality unfolds
 
 
-#### Conscious application of the sacred
+## Conscious application of the sacred
 
 
 No distraction
@@ -112,7 +112,7 @@ Distraction or education?
 Escorting the soul through the death process.
 
 
-#### Dream world
+## Dream world
 
 
 Is the singularity
@@ -120,7 +120,7 @@ Is the singularity
 
 The undiscovered country of our dreams
 
-#### Descendents
+## Descendents
 
 
 In lineage soul families who have to deal with your frequency in the future because of choices made good or bad.
@@ -129,13 +129,13 @@ In lineage soul families who have to deal with your frequency in the future beca
 
 
 
-#### DNA Deoxyribonucleic acid
+## DNA Deoxyribonucleic acid
 
 
 a self-replicating material present in nearly all living organisms as the main constituent of chromosomes. It is the carrier of genetic information; and the fundamental and distinctive characteristics or qualities of someone or something, especially when regarded as unchangeable.
 
 
-#### Ego
+## Ego
 
 
 Parasympathetic
@@ -144,7 +144,7 @@ Parasympathetic
 
 
 
-#### Envoy
+## Envoy
 
 
 A being that crosses time , a multidimensional genius
@@ -156,13 +156,13 @@ Participant cocreator procreator
 
 
 
-#### Equal co-creation
+## Equal co-creation
 
 
 Equal co creation is a moment to passed on moment understanding that you are an ever evolving being with expansion and contractions of knowingness going in awake and asleep moments.
 
 
-#### Fifth world of peace
+## Fifth world of peace
 
 
 Is when all of our previous selves that made the best possible choices for us assemble on a single timeline that are not about the four previous celestial teacher worlds. The fifth world of peace is a selectable timeline in which we created individuated awakening to form collective individuated beings to form collective collections that make the first micro collective which becomes a macro collective over hundreds of years while our individual experiences still continue learning and connecting to multidimensional multifunctional photonics beings of light
@@ -171,13 +171,13 @@ Is when all of our previous selves that made the best possible choices for us as
 
 
 
-#### Foetus in our mother’s womb 
+## Foetus in our mother’s womb 
 
 
 Our greatest source connection. Interconnectivity to all.
 
 
-#### Galactic History 1
+## Galactic History 1
 
 
 Was the colloquial attempt at challenging our I Am ness to be active in the now so we can activate our infinite potential to overcome race amnesia
@@ -186,13 +186,13 @@ Was the colloquial attempt at challenging our I Am ness to be active in the now 
 
 
 
-#### Galactic ascension machine
+## Galactic ascension machine
 
 
 Karmic resolution machine to resolve karma.
 
 
-#### Great Mystery
+## Great Mystery
 
 
 lives within every thing and every one.
@@ -210,7 +210,7 @@ Great Mystery will never be solved.
 
 
 
-#### Hierarchical order. 
+## Hierarchical order. 
 
 
 The pecking order at which our perception drives into different levels of charge or polarity. Hierarchical order is design to create charge and polarity to create resolution with iam agenda driven beings.
@@ -219,19 +219,19 @@ The pecking order at which our perception drives into different levels of charge
 
 
 
-#### Hologram
+## Hologram
 
 
 Is our frequency of our geometric sacred space, our consciousness/ interaction and knowingness
 
 
-#### Hub of interconnectivity
+## Hub of interconnectivity
 
 
 is the 10 thousand past generations and 10 thousand future generations in the Aurora Borealis of the North and South Pole that’s how we create interconnectivity which becomes the interconnectivity between the North and South Pole
 
 
-#### Humans
+## Humans
 
 
 Are not living computers, we are algorithms. Computers are hardware. We are a continuous infinite string of perception and numbers in which a dna instrument of experience processes into many different colours of time and space . A data processing machine .
@@ -246,7 +246,7 @@ We were a biological , pre-cognitive logistical communications and direct manife
 
 
 
-#### I Am is the witness
+## I Am is the witness
 
 
 Of how I exist in a world of energy
@@ -288,13 +288,13 @@ The I AM is the technology of interface with the God Source and is already withi
 You have to know yourself as the human to know your soul's purpose.
 
 
-#### Idealic memory
+## Idealic memory
 
 
 Your ability to remember thoughts and concepts without photographic memory. The more practice of the teaching the more knowledge is available in a spiritual moment. To be so familiar with the teaching that you can draw upon any teaching in the a la carte system of belief at anytime . It’s always in your knowingness . Beyond memory. Modifying memory to use in an idealic style. Using the dimensions and qualities of the teaching , unraveling a realm of light so you can use and apply it. One line can trigger the whole teaching
 
 
-#### ID EGO
+## ID EGO
 
 
 According to this Freudian model of the psyche, the id is the set of uncoordinated instinctual trends; the super-ego plays the critical and moralizing role; and the ego is the organized, realistic part that mediates between the desires of the id and the super-ego.
@@ -302,12 +302,12 @@ According to this Freudian model of the psyche, the id is the set of uncoordinat
 
 The ego is the Parasympathetic
 
-#### Instant gratification
+## Instant gratification
 
 
 Not all bad
 
-#### Linear time
+## Linear time
 
 
 Was solely created for this reality. No other place uses linear time like we do.
@@ -322,7 +322,7 @@ Because it’s an engine of belief woven together through thousands and millions
 
 
 
-#### Localised and non localised event
+## Localised and non localised event
 
 
 When a locality event occurs a non locality side exists . Just as there
@@ -333,7 +333,7 @@ the now. Interconnectedness is a state of being within the localised
 event , even though awareness may not be aware of its strength and
 potency in the reality function and format.
 
-#### Mandela effect
+## Mandela effect
 
 
 It's a consequence and retribution of karma as well as a bleed through from other times. The system has shifted our reality and moved soul shards on to other realities so we would be fragmented in our memories. So it’s a consequence and retribution for all those who’ve been manipulating time. It’s a way for the universe to put everything back to neutral . It helps us to find the forgotten pieces of ourselves, the pieces and parts that have been manipulated and put outside of time, lost versions of ourselves who never got resolution, and as a manifestation giving them resolution through an experience. Through different perception and perspective we can generate manifestations on the forgotten side so they are no longer forgotten and the system must now deal with them as remembered not forgotten
@@ -351,7 +351,7 @@ Redefining history
 
 
 
-#### Martyr
+## Martyr
 
 
 An archetypal personality type who will sacrifice great deals of themselves because of ideological theory or of their religious or other beliefs.
@@ -360,25 +360,25 @@ An archetypal personality type who will sacrifice great deals of themselves beca
 
 
 
-#### Mental Mastubation
+## Mental Mastubation
 
 
 Arguing about something that has no bearing on reality. We affect the world so any mental activity that keeps us from responsibility is Mental Masturbation
 
 
-#### Medicine
+## Medicine
 
 
 Something the world needs for healing. Living in a way that knowingly drives your value and choices in the world.
 
 
-#### Media content producer
+## Media content producer
 
 
 What’s your input doing?
 
 
-#### Non-competition
+## Non-competition
 
 
 Non competition is a way of living life daily on the seen and unseen layers of your reality equal to your level of self illumination of what is competition and what is non competition, with equal co-creation as a means, method or procedure that enhances non competition and its color experience in light. When one chooses to be in non competition one does not win lose or draw at any subject projecting competitional order. Non competition nullifies the essence of competition.
@@ -387,7 +387,7 @@ Non competition is a way of living life daily on the seen and unseen layers of y
 
 
 
-#### Non-hierarchical order 
+## Non-hierarchical order 
 
 
 This is a emanation of one's own expression to be fully in one's own dna skin suit making lasting changes to the “you” the I am now who is the “agenda’ based resolving self. Non hierarchical order is a medium to belne the agenda and non agenda based parts of the singularity that is you.
@@ -396,7 +396,7 @@ This is a emanation of one's own expression to be fully in one's own dna skin su
 
 
 
-#### Observers
+## Observers
 
 Disentangled
 
@@ -418,7 +418,7 @@ The unentangled observer is part of the Akashic Record – they are a stream of 
 ie. Crown Jewels that hold imprinted power over people / hypnosis.
 
 
-#### Offworld Abductions 
+## Offworld Abductions 
 
 When they put you on a different timeline, a lot of time women, you may
 not realise it but you may have been pregnant 50 times with an offworld
@@ -433,13 +433,13 @@ into a belief to put us onto alternate timelines without ever telling us
 that we have been transferred just because we belief in what we are
 being told.
 
-#### Parasympathetic
+## Parasympathetic
 
 
 Is the unseen spiritual side of us that has all of our spiritual contracts that’s trying to drive us into evolution related to the ego. Unseen light body action. Multidimensional selves
 
 
-#### Perception Inception filter
+## Perception Inception filter
 
 
 How we choose to engage the mystical in equal cocreation non competition non hierarchal order. In sacred discipline format for we are our own natural evolving single stream of light
@@ -462,7 +462,7 @@ which gives them access to the unlimited skills and that is the I AM
 giving authority to the program so that the body can run on autopilot
 and go off to never never land or what ever it is to not be in the body.
 
-#### Precognitive work force
+## Precognitive work force
 
 
 Is our own non hierarchal selves in : -
@@ -528,7 +528,7 @@ An Intangible action is a physical action. Higher self observes you going throug
 You are an I am agenda driven being with spiritual contracts to be here now to be in a bubble of reality in the great dreamtime awaking. Your bubble of reality is your dream and your only limitations are those self imposed. On my path to taking out those limitations creates the unlimited point of view.
 
 
-#### Race Amnesia
+## Race Amnesia
 
 
 26k years ago it began affecting 65% of the living population in dna lineages.
@@ -537,7 +537,7 @@ You are an I am agenda driven being with spiritual contracts to be here now to b
 By the Dark ages 98% of population had completely lost the oral and intuitive teaching present in all sentience with consciousness actively processing their life path as manifest beings.
 
 
-#### Sacred neutral point of view
+## Sacred neutral point of view
 
 
 Non polarity
@@ -549,7 +549,7 @@ Non polarity
 
 
 
-#### Sovereignty
+## Sovereignty
 
 
 Is the full right and power to be a governing body of one's own self, without any interference from outside sources or bodies seen and unseen. Physical and nonphysical.
@@ -564,7 +564,7 @@ Declarations of Sovereignty and non consent are magic as they undo spells and co
 Claiming sovereignty will begin to transform your life and allow you to co create in your full capacity as a free willed multi-dimensional, universal being. To be sovereign we must practice free will at all times.
 
 
-#### Synchronicity 
+## Synchronicity 
 
 
 It all depends on your perspective first and then your perception behind that perspective. A synchronicity can be anything from a fly landing on your nose and you going to whack it and punch yourself in the face , so you suddenly realise you’re too aggressive with yourself, to an anti Trump video that makes you laugh so hard you pee your pants . A synchronicity can be anything . It’s really about the moment in which it happens and then the acknowledgement that the divine is there working with you at some level.
@@ -588,7 +588,7 @@ The environment we're living in communicating with us to create thought and acce
 Reinforcement of a thought, synergy.
 
 
-#### Synthesis
+## Synthesis
 
 
 A state of personal freedom and awareness for growth within the patterns we create to promote our own evolution with our purpose and place in this world
@@ -600,13 +600,13 @@ It is our legacy and birthright to be in synthesis with all there is was and eve
 
 
 
-#### Shared Reality Rules
+## Shared Reality Rules
 
 
 Rules that apply to all of us as a collective when sharing space / interacting amongst each other, inside of this reality. Each universe has its own rules that define the parameters of experience. Think gravity. Cause and effect etc. - these rules dictate the nature of the experience we all share.
 
 
-#### Sentience
+## Sentience
 
 
 The capacity to feel, perceive , or experience subjectively
@@ -618,7 +618,7 @@ Sentience are experiencing some form of duality ie Artificial
 Intelligence have no dream world
 
 
-#### Self illuminated master
+## Self illuminated master
 
 
 Is responsible to their level of awareness
@@ -648,7 +648,7 @@ Is a hub of interconnectivity
 Carries the mantle of responsibility for the next seven future
 generations
 
-#### The Shadow
+## The Shadow
 
 
 Works through projection from ourselves . Projection is the mechanism of the shadow
@@ -662,7 +662,7 @@ Working on your obstacles will not get you to your destination. Look deeper for 
 
 Sympathetic
 
-#### Sleep
+## Sleep
 
 When you sleep, you close off your physical Consciousness and open up your Consciousness to the true, Higher dimensional reality.
 
@@ -691,7 +691,7 @@ Consciousness through which you must carry your dream back into your waking life
 Because you are aware of Higher dimensions while you are awake, you can more easily open the portals into the Higher dimensions while you sleep.
 
 
-#### Soul, higher spirit and light bodies
+## Soul, higher spirit and light bodies
 
 
 Light does not need a medium in which to propagate , this why we have light bodies to occupy bio-photonic bodies or as we have here:
@@ -703,7 +703,7 @@ Lineage based DNA skinsuits that encode the light body as a localised event.
 We are an I AM self driven wave form in a bubble of reality that has physics adjusting us to our harmony and frequency based on our ability to propagate life in equal cocreation with our celestial counterpart. This is our species explained in simplistic form.
 
 
-#### Sympathetic
+## Sympathetic
 
 
 Is us, the soul, that’s in here trying to overwhelm the ego and the id and all the other things to create an experience that has choice point based trust experiences. The I AM technologies interaction with the system
@@ -715,19 +715,19 @@ Is us, the soul, that’s in here trying to overwhelm the ego and the id and all
 
 
 
-#### system
+## system
 
 
 Wants us to believe everything is hierarchical, that there is no non hierarchy.
 
 
-#### Tort
+## Tort
 
 
 Civil wrongdoing
 
 
-#### Truth and Disclosure
+## Truth and Disclosure
 
 
 First you’re
@@ -742,7 +742,7 @@ Violently opposed. Then
 It’s Self Evident
 
 
-#### Unconditional Love
+## Unconditional Love
 
 
 Means no-strings-attached to the Love you give. You may or may not receive Love back because that's not part of the deal. If you had to receive it back, that would be a condition.
@@ -757,7 +757,7 @@ You Love without expecting anything at all in return.
 UNCONDITIONAL LOVE knows no boundaries, no limitations and no conditions, no spiritual commerce..no energy traffic!
 
 
-#### Unseen World
+## Unseen World
 
 
 Is equal to this world and layered over it through the forms of thought and perception
@@ -766,7 +766,7 @@ Is equal to this world and layered over it through the forms of thought and perc
 
 
 
-#### Unlimited point of view
+## Unlimited point of view
 
 
 Looking at your own limitations. The very act of looking for your own limitations puts you in the path to the unlimited point of view. Letting go of instant gravitation questions and taking out the charge and polarity. Being a sacred neutral question asker of yourself . Limits imposed by the reality rules we buy in to
@@ -775,7 +775,7 @@ Looking at your own limitations. The very act of looking for your own limitation
 
 
 
-#### Water
+## Water
 
 
 The collective and upper collective exist in the connectivity of the water.
@@ -790,7 +790,7 @@ Water is a medium of mass manipulation and dna evolution.
 
 
 
-#### Word salad
+## Word salad
 
 
 Random use of concepts and combinations of words from different teachings making own creation
@@ -802,7 +802,7 @@ From one two and more words and expressions manifesting own teachings
 A handful of words can bring forward a whole teaching . Mastering word salad means you can draw upon a handful of words they has whole teachings metaphorically behind it
 
 
-#### Zealot
+## Zealot
 
 
 A person who is fanatical and uncompromising in pursuit of their religious, political, or other ideals.
@@ -859,10 +859,10 @@ A person who is fanatical and uncompromising in pursuit of their religious, poli
 
 
 
-#### COINED PHRASES TEACHINGS
+## COINED PHRASES TEACHINGS
 
 
-#### CURIOSITY LEARNING:** is when you let programs run you. When you are curious about something you are not the neutral observer because you have already charge and polarity out of curiosity itself. You are already controlling a subject matter, which is right at the edge of unknown that the brain is going to fill in the unknown before it is known.
+## CURIOSITY LEARNING:** is when you let programs run you. When you are curious about something you are not the neutral observer because you have already charge and polarity out of curiosity itself. You are already controlling a subject matter, which is right at the edge of unknown that the brain is going to fill in the unknown before it is known.
 
 
 Related teachings:-
@@ -877,10 +877,10 @@ NEXT STEP: - Finding passion through the infinite unlimited point of view withou
 Harmony, Vibration and Frequency teaching.
 
 
-#### TIME SYNCHING:** Staffing agencies look for how present you really are. They see it as a time space equation so they can match you with a being of similar resonance to your time space equation. This is called TIME SYNCHING. Once you are in time sync with an agency it can contract for you. People, places, things, objects, art pieces, anything that can create an experience that manifests a memory with lasting expressions. Astrology has a big part in how the agencies can work with one.
+## TIME SYNCHING:** Staffing agencies look for how present you really are. They see it as a time space equation so they can match you with a being of similar resonance to your time space equation. This is called TIME SYNCHING. Once you are in time sync with an agency it can contract for you. People, places, things, objects, art pieces, anything that can create an experience that manifests a memory with lasting expressions. Astrology has a big part in how the agencies can work with one.
 
 
-#### Related Teachings:
+## Related Teachings:
 
 
 - Forcing a match to Harmony, Vibration & Frequency – forced charge & polarity
@@ -895,10 +895,10 @@ Harmony, Vibration and Frequency teaching.
 Instant gratification & outside validation
 
 
-#### SIGNATURE FREQUENCY TEACHING:** That attraction process is aligning in the unseen world based off raw vibration, frequency, harmony. When our cognitive mind gets involved in it you are forcing a match that is in our time space equation for which we might not be ready for that level of awareness and it turns into an instant gratification journey.
+## SIGNATURE FREQUENCY TEACHING:** That attraction process is aligning in the unseen world based off raw vibration, frequency, harmony. When our cognitive mind gets involved in it you are forcing a match that is in our time space equation for which we might not be ready for that level of awareness and it turns into an instant gratification journey.
 
 
-#### Related teachings:
+## Related teachings:
 
 
 - Forced matches: System of domination and control / people seeking validation/Dating world
@@ -910,13 +910,13 @@ Instant gratification & outside validation
 
 
 
-#### SPIRITUAL STRATEGY:** Is an agenda in your time space equation that things can naturally time sync with you and you are not naturally forcing them (ie relationships) It’s a pure energetic thing that does not have the cognitive forcing behind it. SPEED LIMITS/ CONSTRUCTIONS CITES on the path of the I AM being in the VAGUS nerve to either speed up or slow down the journey can either be a program or free will joices.
+## SPIRITUAL STRATEGY:** Is an agenda in your time space equation that things can naturally time sync with you and you are not naturally forcing them (ie relationships) It’s a pure energetic thing that does not have the cognitive forcing behind it. SPEED LIMITS/ CONSTRUCTIONS CITES on the path of the I AM being in the VAGUS nerve to either speed up or slow down the journey can either be a program or free will joices.
 
 
 THE IAM’s purpose is to cognitise things in a time space equation, that has access to its vagus nerve, equal to its level of awareness, so a series of experiences can transcend chemical memories become powerful light memories that allow us to remember things about us during the great awakening that is part of ascension into higher states of beingness whilst still present in this world that has all these incoherent factors to them. What are incoherent factors? Political voting system, rules and laws, banking, government…. All those things that are trying to force a match in a non-natural reality with unprotected technology.
 
 
-#### Related teachings:
+## Related teachings:
 
 
 - How to protect ones I AM Technology which literally is a technology…. 20% of DNA
@@ -934,7 +934,7 @@ THE IAM’s purpose is to cognitise things in a time space equation, that has ac
 CELESTIAL BEING: Is a series of experiences in light that has gone through the infinite validation that the finite being is the infinite being simultaneously. The journey being the medium is balancing finite and infinite.
 
 
-#### Related teachings:
+## Related teachings:
 
 
 - I AM APEX BEING…. DNA 80% memory & 20% technology, celestial coding
@@ -964,7 +964,7 @@ The agencies or self created internal programs within the Vagus nerve slow down 
 The Schuman resonance is there to keep all living things seen and unseen on one celestial musical key. Free will allows us to explore many keys that can create resonance with the natural way of living, or dis-resonate. A dis- resonate state is the cacophony of chaos and chaos is its own universal key.
 
 
-#### Related teachings:
+## Related teachings:
 
 
 - The I AM technology as realised universal potential in the VAGUS NERVE
@@ -994,7 +994,7 @@ Vibration creates a resonance or an echo factor inside the human’s central cor
 If the frequency, harmony, vibration is so strong, no matter how much chemical energy they produce, they are working against that will only tire them out.
 
 
-#### Related Teachings:
+## Related Teachings:
 
 
 - Incoherent embodiment – DMT state x 8
@@ -1024,7 +1024,7 @@ Related teachings:
 
 
 
-#### EVOLUTION OF I AM TECHNOLOGY
+## EVOLUTION OF I AM TECHNOLOGY
 
 
 Sperm & Egg is a technology of taking an egg that is in the infinite sea of infinite consciousness and allows it to become a finite experience in the universal sea of awareness that is also part of the ever evolving streams of light. This is were soul families evolved. Some use seed and egg, some use direct manifestation technology.
