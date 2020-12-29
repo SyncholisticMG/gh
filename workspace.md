@@ -1,64 +1,4 @@
 
-Is their first life experience as a human being living in a tunnel in South America two million years ago praying to a false god? This process is being replicated on millions of worlds for millions of different skinsuits as this is the nature of consciousness.
-As it evolves we need to ask ourselves the question of what rights,
-duties and responsibilities do we,
-as consciousness incarnate,
-have to use our intention and attention to create direct manifestations to add to the holographic experiences?
-Q: What is consciousness in its most basic form? Right now there are different levels of background consciousness around you.
-Take the house you live in as having its own relative consciousness from the building material,
-the wood,
-the concrete it is made of.
-The people that invested their consciousness in building it,
-the trees that surround it,
-the property itself,
-the piece of land that you are on including all the micro organisms around you as well as squirrels,
-cats and dogs.
-All of those have a conscious field of energy,
-with their specific spiritual contracts,
-guides and guardians; an apparatus and infrastructure that allows ascension and descension through the different individual layers of dreaming experiences.
-This animated matter we are entangling with is part of the fabric of the hologram,
-linked and dynamically transformed through the interaction between human and microorganisms.
-
-Q: What would define consciousness as spiritual to have a greater awareness of itself? Consciousness is intrinsically spiritual but there is a marker point of a natural belief a caveman may have versus an evolved belief of a caveman having applied shamanic practices.
-Part of spirituality is to acknowledge and become aware of other consciousness surrounding,
-interacting and sharing with us.
-You can be on our own in the house and still have that experience of consciousness sharing and entangling with you.
-You are never truly alone.
-
-Q: Can we say consciousness is an evolutionary impulse within all of us to grow and advance? DNA can be its own evolutionary impulse that influences consciousness to move when experiencing stagnant energy.
-Memories which make up part of 80% in our DNA can trigger that stimulus as well as the part of the DNA that corresponds to our spiritual codes and contracts that entangles with consciousness to allow purpose and mission to unfold in linear and none-linear time.
-
-Q: What is PLANETARY & UNIVERSAL CONSCIOUSNESS? Seeing the planet as a waveform and we are the subcarriers within that wave? There is a master waveform that is operating at a much longer length of time and within that waveform are all the individual subcarriers,
-or observers,
-of that era or light or time.
-The celestial mind is operating on a much longer and expansive view of time and timelessness.
-
-THE LEVELS OF AWARENESS
-1.
-THE ocean of awareness &mdash; THE UNIVERSAL HOLOGRAM
-The consciousness outside of time we can call it the ocean of awareness - THE UNIVERSAL HOLOGRAM -  that has the individual universal experience within.
-The universal experience will become a microbeing on a celestial planet that chooses forgetfulness to become finite as part of a universal evolving experience.
-We can call that the AVATAR which operates as many *I ams* inside and outside of time.
-The consciousness flow in the ocean of awareness allows the data to go from wave to particle,
-the celestial medium to the DNA experience.
-The ocean of awareness is the implicate order.
-There are different Oceans of Awareness in other universes,
-many implicate orders,
-as every universe creates different agendas,
-experiences,
-incarnations and reincarnations.
-Not every universe uses incarnation,
-many don’t use *I am*ness as technology like ours with seed and egg technology.
-
-Q: How does The ocean of awareness work fit into the quantum theory? The  ocean of awareness is part of the intricate waveform quantum physics refers to.
-Through different levels of awareness it can be collapsed into particles as well as every particle can again be broken down into subpoints of observation.
-The particle can be one DNA lineage and all DNA lineages simultaneously based off what we choose to observe through it.
-The ocean of awareness generates one particle which is technically the whole hologram but we perceive the hologram at different skills of awareness.
-So the particle can be tens of millions of lineages and tens of billions of worlds.
-An individual observer works up the scale of observation that says: I am in this lineage that is this particle on this planet but it is also part of a solar system which makes it a bigger particle so on and so forth.
-Our local hologram is one particle and we are particles inside that one particle.
-As individual particles we can perceive the next particle &mdash; the solar system particle.
-That’s what I call a solar system cork screwing through time.
 
 Q: What does ‘A SOLAR SYSTEM IS CORK SCREWING THROUGH TIME’ mean? which is on a galactic groove,
 so our local star system of galactic time,
@@ -66,16 +6,8 @@ or our local star system of time is one particle.
 We as conscious beings of awareness and choice can go to the next scale,
 where the solar system as a particle is one part of a giant galactic particle.
 This then gives us access to the grand ocean of awareness through conscious entanglement with it.
-There we have the ONENESS concept.
+There we have the oneness concept.
 
-Q: Can you give an example on when we are working with The ocean of awareness? When you are doing the GOLDEN TUBE OF CONNECTION teaching &mdash; connecting from the body to the sun you are achieving the solar system particle awareness.
-That’s why you connect to the sun on the other side of the tube and allow ourself to pulsate back and forth.
-The sun is the portal into the next form of awareness &mdash; THE CELESTIAL COMMERCE MARKET AGAIN…
-In the DRAGON REVOCATION we talk about going beyond our sources light.
-We can go to other Oceans of Awareness that are technically still entangled with our Universal ocean of awareness through aunt and uncle lineages of sources.
-Many sources have divested into different ways of experiencing.
-
-2.
 THE SEA OF CONSCIOUSNESS &mdash; THE time-space HOLOGRAM
 One scale lower is the SEA OF CONSCIOUSNESS - THE time-space HOLOGRAM -  that allows you to incarnate into a gender of NARRATIVE TIME (COLLECTIVE CS) &mdash; bodies for unique experiences that amplify the ocean of awareness to rediscover itself as one.
 In this SEA OF CONSCIOUSNESS you can have more than one avatar as you can be thousands of beings and being in thousands of places and spaces forward and backwards throughout all time-space,
