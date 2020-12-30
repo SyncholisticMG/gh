@@ -2,10 +2,9 @@
 The Divine Hologram
 ==========================
 
-
 ```
 hologram noun
-ho·​lo·​gram | \ ˈhō-lə-ˌgram  , ˈhä-  \
+ho·​lo·​gram
 Definition of hologram
 : a three-dimensional image reproduced from a pattern of interference produced by a split coherent beam of radiation (such as a laser)
 also : the pattern of interference itself
@@ -161,8 +160,8 @@ It's funny,
 because when you clue into it;
 it's everywhere.
 
-```
-She should have died hereafter.
+
+>She should have died hereafter.
 There would have been a time for such a word.
 Tomorrow, and tomorrow, and tomorrow
 Creeps in this petty pace from day to day
@@ -175,10 +174,10 @@ And then is heard no more. It is a tale
 Told by an idiot, full of sound and fury,
 Signifying nothing.
 
-Macbeth
+>Macbeth
 William Shakespeare
 
-```
+
 
 Why would the end of time be marked and measured by syllables?
 Because it's all sound,
@@ -720,8 +719,8 @@ The implicate and explicate unfolds in the the sea of consciousness.
 
 
 The unentangled observer appears in many forms.
-Cats were created from the ground up as a skinsuit so beings could learn unentangled observation.
-There are many skinsuits that are unentangled observers.
+Cats were created from the ground up as a form so beings could learn unentangled observation.
+There are many forms that are unentangled observers.
 Certain gut gnomes we have can be unentangled observers.
 Cats are the most prolific,
 common not just on this world but millions of others as well.
@@ -770,7 +769,7 @@ The light body doesn’t identify to a single point of time anymore.
 This is the corruption of the chemical memory,
 the time stamping.
 This disease can be contracted by the fetus in the womb or by DNA design and plan.
-There are certain DNA skinsuits with a prevalent experience in them.
+There are certain DNA forms with a prevalent experience in them.
 The fetus knows that before it goes into the DNA form for the experience.
 There is much we can do to prevent this,
 but we don’t have the proper gut gnome from a very young age to support brain health.
@@ -854,8 +853,8 @@ In the ocean of awareness
 the living algorithm of life
 &mdash;
 all data is conscious.
-We become the living algorithm of life when we are in a DNA skinsuit that is regularly achieving near super or superluminal thinking.
-The algorithm is a fundamental part of the I AM technology unfolding as you grow older and become more experienced running the DNA skinsuit at its higher functionalities.
+We become the living algorithm of life when we are in a DNA form that is regularly achieving near super or superluminal thinking.
+The algorithm is a fundamental part of the I AM technology unfolding as you grow older and become more experienced running the DNA form at its higher functionalities.
 When you act as the living algorithm of life within superluminal thinking,
 you create a signature frequency where others can palpably sense the meaning of your delivery.
 Being fixed and not fixed in time.
