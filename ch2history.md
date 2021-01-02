@@ -248,10 +248,10 @@ This is the promise
 
 
 
-## SPACIAL AWARENESS
+## Spacial Awareness
 
 Physical movement entangles us with individual and collective consciousness,
-oscillating between explicate to implicate.
+oscillating between explicate and implicate.
 We change environment and move through different levels of consciousness.
 We alter the existing.
 Our consciousness is acted upon by fluctuating fields of electromagnetic energy.
@@ -260,64 +260,42 @@ Genes are not self-actualizing.
 The proteins comprise the structure of the human body,
 defining shape and influencing behavior in an ongoing attempt to balance charge and polarity from the environment.
 
-Our individual bubble of reality gets enriched in experience and memory through the journey on the celestial neuropathway process,
-taking us from locality to locality,
-from one hologram to another expanding the Orchestra of Consciousness.
-The neuropathways are an assemblance of proteins that move the body and help it to function.
+Our individual bubble of reality gets enriched in experience and memory through the journey on the celestial neural pathway.
+We go from one hologram to another in the expansion we call the orchestra of consciousness.
+The neural pathways are an assemblage of proteins that move the body and help it to function.
 We all know how to walk through this reality.
-This is your invitation to look at it from a consciousness perspective and acknowledge the influence of each and every environment on our physical,
-emotional and spiritual wellbeing.
-The Celestial mind generates a hologram in which our DNA instrument can have experiences,
-playing from the sheet music the orchestra is using.
-All living consciousness is part of the orchestra.
-Their individual instruments determine what group of culture,
-soul families they are born into.
-We are all playing from the same celestial orchestra sheet music but we don’t always hear the rest of the orchestra.
-We only hear our solos and the instruments that match our signature frequency through frequency,
-vibration and harmony.
-
-As we go from our house to our car we have changed localities and harmony frequency vibration that is taking us onto a road that is more intra connected to the celestial mind because roads are karmic transference and resolution points.
-All car accidents are karmically created,
-no coincidences there.
-When people are driving,
-the Sympathetic and the Parasympathetic are in a form of agreement so that the fight,
-light or freeze does not take over and create excessive fear to create accidents.
-Driving is an experience that allows more instruments to be aware of each other,
-a way of connecting.
-Using the musical metaphor we are closer to other instruments and tones,
-the birds,
-the bees,
-the ducks,
-other cars,
-the pavements,
-telephone wires carry consciousness back and forth,
-we are in the meaty part of the hologram.
-
-Q: How does this relate to the BUBBLE OF REALITY? Our individual car is our own tune going from locality to locality via the journey of frequency,
-vibration and harmony.
-Most of the time we get in the car we know where we are going but not always.
-Our FVH from the time we leave the house and get into the car will know the FVH match of our destination even if we have never been there before.
-It is part of the background consciousness of the planet or the maestro that is directing us from point to point through universal synchronistic blueprints.
-As the body moves through the holograms the experience is filled with more energy and we reciprocate with our energy.
-We are energy in motion,
-chemical and energy bodies at the same time moving through the hologram.
-
-Q: What holograms are impacting on our individual hologram through the movement of our bodies?
-CULTURE which binds us to an era of history.
-Our culture has Roman Numeral Time which is not our true accurate time stamp.
-It may use elements of it though because our culture binds us to an era of history which is part of the hologram of resolution.
+The celestial mind generates the divine holograms through which our bodies have experience.
+All living consciousness is part of the symphony.
+The light and sound which creates and sustains all the realities allows us to manage a fractal of it which we call our reality.
+Our very reality on an individual by individual basis is a co-created reality between us and the material of the hologram itself,
+sound and light,
+which sustains our physical and inner existence.
+Our dreams are expressed in sound and light.
+There are fractals within fractals.
+Culture is another fractal,
+whether it be a pueblo in a mountain village in Colombia,
+or the frenetic consumerism inspired by Madison Avenue.
+It's a hologram overlaying and interacting with your personal hologram.
+It binds us to an era of history.
+Our culture has Roman numeral time,
+which is not our true accurate time stamp.
+It may use elements of it,
+though.
+Our culture binds us to an era of history.
+It's part of the hologram of resolution.
 Our entanglement into the culture’s hologram of roman numeral time builds up a weave into the individual hologram.
-We are reaching a point where many more instruments are  playing.
 
-WEATHER  is also an intricate part of our history,
+
+Weather is an intricate part of our history,
 part of what is going on at the time.
-Weather is also intra connected to programmed water.
+Weather is intraconnected to programmed water.
 The programmed water of an era of history determines our weather patterns.
-We as human beings are constantly imprinting on the water on an uncollective level to create a collective.
-
-ANIMALS & PLANTS as conscious beings of choice,
+We as human beings are constantly imprinting on the water on an individual level to create a collective.
+Animals and plants are conscious beings of choice,
 even though they haven’t been given the rights,
-duties and responsibilities as beings of awareness to experience love.
+duties,
+or responsibilities of beings of awareness,
+allowing the experience love.
 Our laws don’t include them as part of that.
 The rest of the network of life and our laws are separate from that through conscious entanglement with the narrative.
 Trees,
