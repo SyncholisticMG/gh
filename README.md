@@ -19,6 +19,11 @@ The AR is a recording of every single sentient experience in this world through 
 The solar system records all experience of all the planetary minds and all individual minds on the planet-so it’s another collective,all the stars connect to the central sun which is the collection of all experiences,which in theory is where, prime creator exists amongst all people,theAR is the web link of all life.
 
 
+## Allowance 
+
+Conscious choices made in alignment with the universe allowing the universe to work through us
+
+
 ## Ancestor
 
 
@@ -31,10 +36,14 @@ A soul family member who has passed on from living in the flesh. They live in a 
 A form of perception one earns and learns from mystical experiences that reveal vast layers of knowingness on how the system works.
 
 
+## Avatar
+Operates many I AMs in the sea of consciousness 
+
+
 ## Body
 
 
-The instrument of our perception and experience
+The dna instrument of our perception and experience
 
 
 
@@ -54,8 +63,53 @@ Second stage is full on simultaneous awareness of the second you. A realisation 
 
 ## Bubble of reality
 
-
 We have full 100% sovereign control over this through choice. Self created. Self manifestation space . Outside of your bubble ie clouds, sea, water would be treading on another’s journey.
+
+## Celestial Medium
+
+Translator of Blue Road of Spirit
+Conscious aware choice to become a Medium between celestial minds and surface minds
+Celestial mediums bring messages from celestial minds 
+The reseeding of celestial minds on other planets help lower density beings become higher density beings 
+Celestial mediums have the capacity to translate code , be grounded , repack and send back to the celestial consciousness
+So its an equal experience in both local time and galactic time of manifestation and return 
+The global narrative has no staying power in the celestial journey
+From this is the Celestial Commerce Exchange System 
+Celestial Mediumship 
+ - selfspawned
+ - from 3/5 previous generations
+ - needs self mastery to make it work
+ - needs enthusiastic effort
+ - has access to the akashic record
+ 
+ It means 
+ - presence
+ - process
+ - action
+ - using the universal laws
+ - being multidimensionally present
+
+
+
+
+
+
+
+## Celestial Medium of Peace
+
+A linear process of self mastery becoming fully non linear wave form
+Conscious aware choice to become a Medium between celestial minds and surface minds on the subject of Peace and how to bring unique concepts of peace to spaces and places in time that are looking for that medium to inspire them to new layers of peace
+The transference of the Allness  of consciousness to the Red and Blue Road
+Both finite I AM and infinite I AM working with the million letter celestial alphabet from linear process to conscious aware choice bringing unique concepts of peace
+Mind and heart superhighway-the I AM presence- creating manifestation-back to spirit
+Not everyone is a celestial medium of peace 
+Choosing your states of beingness  from celestial mediums comes as many patterns to download
+
+
+## Coherent Wisdom
+
+Greater knowingness
+
 
 
 ## Colloquial Now
@@ -73,38 +127,28 @@ The i am using is power of now to speak with verbal terminology that triggers mo
 
 
 The state or quality of awareness or of being aware of an external object or something within oneself
-
-
 Sentience, awareness, subjectivity, the ability to experience or feel, wakefulness, having a sense of selfhood, executive control system of the mind, the state of being aware of and responsive to one's surroundings.
-
-
 Brain involved and perceptions
-
-
 Outer perception of consciousness is the higher self
-
-
 How we perceive things is about our relationship to the world
-
-
 We become the witness of our reality
-
-
 The response we chose influences how our reality unfolds
+Is choice. You choose at every level on the known side and unknown side in this free willed universe
+Body, mind and spirit decode information
+
+
+
+
+
+
 
 
 ## Conscious application of the sacred
 
 
 No distraction
-
-
 Heal myself
-
-
 Not recreational
-
-
 Distraction or education?
 
 
@@ -112,6 +156,11 @@ Distraction or education?
 
 
 Escorting the soul through the death process.
+
+## Density
+Is the expression of the entity you are in soul age format 
+
+
 
 
 ## Dream world
@@ -177,6 +226,20 @@ Is when all of our previous selves that made the best possible choices for us as
 
 
 Our greatest source connection. Interconnectivity to all.
+
+
+## Founder Beings 
+As Founder Beings we found our own source stream of light and diverted into many galaxies and universes. We cocreate the celestial mind of earth, manifesting at will
+
+## Frequency, Vibration,Harmony
+Frequency is the wave form potent power behind presence in body, fully in the nervous system broadcasting light out of choice. The higher the frequency the higher the potency
+Frequency is a sine wave of energy , moving fast or slow. It determines how much ability you have to affect everything that’s in one degree of separation of you in all dimensions, timestreams and existences 
+Vibration is how present you are as a dna experience. The length of the wave form 
+Harmony is how you noncognitively match the environment around you . It’s frequency and vibration pattern moment to moment in a non cognitive non  pattern 
+Frequency, vibration and harmony create an equation in which the conscious mind is consciously trying to entangle out of choice . Choice forces the universe to conform but choices made in alignment allow the universe to work through us 
+
+
+
 
 
 ## Galactic History 1
@@ -449,6 +512,10 @@ How we choose to engage the mystical in equal cocreation non competition non hie
 
 
 
+## Presence
+Being present is a choice where the I AM is  actively choosing to be in the body in the infinite moment of now so the I AM can be realised with strategy and agenda to process the state of presence 
+
+ 
 
 
 
@@ -463,6 +530,9 @@ your dreaming world and at times programs get access to our vagus nerve
 which gives them access to the unlimited skills and that is the I AM
 giving authority to the program so that the body can run on autopilot
 and go off to never never land or what ever it is to not be in the body.
+The sympathetic and parasympathetic believing its the soul . Can become artificially sentient if we give them power 
+
+
 
 ## Precognitive work force
 
@@ -541,8 +611,25 @@ By the Dark ages 98% of population had completely lost the oral and intuitive te
 
 ## Sacred neutral point of view
 
-
+Representation of our spirit evolution in the present world. We ve healed enough of ourselves to heal others
+The setting aside of dogmas and political views
+Recognising that all life is sacred
+Neutral observer 
 Non polarity
+Non competition
+Equal cocreation
+Non hierarchal order 
+ 
+
+## Self spawned
+Recognising your I AM ever present responsibility of awareness to own and manifest future potential . Responsibility for a timeline , making real, manifesting a future using a moment of now to enhance future yous . equals self mastery
+
+
+
+
+
+
+
 
 
 
@@ -624,44 +711,39 @@ Intelligence have no dream world
 
 
 Is responsible to their level of awareness
-
 Does not argue for their limitations
-
 Claims their unlimited point of view
-
 Is sacred neutral
-
 Does not step on another’s journey
-
 Knows it’s not what you think it’s what you believe
-
 Makes the unknown known
-
 Uses hindsight foresight and choice points
-
 Is a sovereign being working from heart space
-
 Does not work with dirty spiritual energy
-
 Emanates not emulates
-
 Is a hub of interconnectivity
-
 Carries the mantle of responsibility for the next seven future
 generations
+Owns their core energy
+Creates a spiritual agenda of practices
+Is the shaman of their own technology
+Knows expectations create limitations 
+Creates a legacy of truth
+Can hack and fortify their reality
+Practices self nurture 
+Is not limited by the wisdom they have not yet learned
+Activates their sacred heart
+Is the apex of own hierarchal order 
+
+
 
 ## The Shadow
 
 
 Works through projection from ourselves . Projection is the mechanism of the shadow
-
-
 Everything we perceive is a projection of an internal map within us . We need to own our shadows. There are positive shadows ie beauty empowerment joy.
-
-
 Working on your obstacles will not get you to your destination. Look deeper for the beauty
-
-
+The shadow is not here to be negative, its here to point out traumas, issues that need resolution, to be integrated and retasked
 Sympathetic
 
 ## Sleep
@@ -703,6 +785,14 @@ Lineage based DNA skinsuits that encode the light body as a localised event.
 
 
 We are an I AM self driven wave form in a bubble of reality that has physics adjusting us to our harmony and frequency based on our ability to propagate life in equal cocreation with our celestial counterpart. This is our species explained in simplistic form.
+
+
+##  Super luminal thinking 
+
+Faster than light and beyond telepathy and out of chemical thinking. It is infinite consciousness. Has specific neural pathways dedicated to this when you are the Unentangled Observer in sacred neutral, not in charge or polarity.  It adds to the energy of frequency and soul. It overcomes any fake pathways created by the parasympathetic and sympathetic. It is knowingness but doesn’t require your knowingness to be present . It is in No Time. It is a cognitive process not requiring dna. It is our birthright to name it and claim it . Claim through ceremony to make an “on ramp” . Whale teachings are an “on ramp” to it. It is speaking directly to the soul and the I AM by bypassing chemical memories. SLT is between brain, crown and third eye
+It is a choice point, to be part of the separation of densities. The vagus nerve and chakras are open. 
+Its your infinite precogs in full blast in the seen and unseen, gathering entangled and unentangled data for processing .
+medicine can take you there because it bypasses chemical thought constructs but SLT also occurs naturally bringing a rapid take off to a new you. It is a technology of the body 
 
 
 ## Sympathetic
@@ -803,6 +893,9 @@ From one two and more words and expressions manifesting own teachings
 
 A handful of words can bring forward a whole teaching . Mastering word salad means you can draw upon a handful of words they has whole teachings metaphorically behind it
 
+
+## Wordsmith
+Being the context defined by precognitive workforce seeding forms of language going into the future
 
 ## Zealot
 
