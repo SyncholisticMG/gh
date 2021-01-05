@@ -3,45 +3,6 @@ Chapter 2
 ================
 
 
-
-
-
-
-
-## Temporal Highjacking
-
-Temporal high jacking has been around since the dawn of time.
-The whole point of it is to manipulate our capacity to time stamp.
-Remember,
-they discovered the infinite journey that the soul takes and then tried to figure out where,
-when and how they could interfere or create an incoherent pattern to get a soul trapped in an era of history.
-They could then generate a global narrative of mass distraction for the purpose of DNA Farming and hinder the *I am* consciousness to re-enter the Sea of Consciousness.
-
-Q: Why choose the Thymus not use the Vagus nerve? This is time itself,
-gut time vs heart time,
-vs brain time,
-versus unified gutbrainheart time.
-For example when you are taking a multiple choice test in high school,
-and you’ve got 50 questions to do in an hour you have roughly 1 min and 2 secs to answer each question.
-That is the brain calculation of time.
-The heart is obviously a part of that equation but it will only see the one hour as the potential of the experience.
-The gut will be operating intuitively,
-like can I give myself the best possible opportunity of having gut intuition during this span of time?
-A third of all our central nervous pathways are in our gut,
-a third in our heart and a third in our brain.
-When you have all of them working together you have TEMPORAL AWARENESS with three forms of perception and perspective that can guide the many forms of consciousness through the journey of awareness.
-The bodymindspirt as a complex being has many forms of awareness.
-The foundation of temporal awareness that give us a calculation journey stem from the brain,
-the heart and the gut.
-They are the factors that check in with local reality time.
-The gut,
-the heart and the brain have a deep awareness of the energies that surround us as all electromagnetic frequencies are effected by their environment.
-The Schumann Resonance is the background frequency of electromagnetics that is effected by solar winds and radiation,
-the actual magnetics of the planet.
-This is also how the celestial mind communicates to us and generates time in the temporal awareness.
-It represents an opportunity for consciousness expansion.
-If you feel that you respond to the spikes of the Schumann Resonance it might say to you that have all this electromagnetic thinking juice and you are not doing anything with it.
-
 Q: When did Temporal Awareness manipulation start? Roughly 48-55,
 000 years ago but not all the forms had it,
 not all of them would take temporal manipulation that way.
