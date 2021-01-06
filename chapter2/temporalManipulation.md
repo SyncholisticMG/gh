@@ -29,3 +29,11 @@ Interlopers discovered the infinite journey of soul then tried to figure out whe
 when,
 and how they might create an incoherent pattern and get a soul trapped in an era of history.
 They could then generate a global narrative of mass distraction for the purpose of DNA Farming and hinder the *I am* consciousness from again entering the sea of consciousness.
+
+Temporal manipulation started forty-eight to fifty-five thousand years ago.
+Not all life forms practiced temporal manipulation.
+It was about limiting the amount of life forms on the surface of the earth.
+Particular DNA lineages were not receptive to this temporal manipulation.
+We went from nine-hundred thousand different forms to one-hundred and thirty-five thousand.
+This is the basis of DNA farming.
+This is how they manipulate and limit who is going to be on the farm.

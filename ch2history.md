@@ -3,16 +3,13 @@ Chapter 2
 ================
 
 
-Q: When did Temporal Awareness manipulation start? Roughly 48-55,
-000 years ago but not all the forms had it,
-not all of them would take temporal manipulation that way.
-Again,
-it was all about limiting the amount of forms on the surface.
-Something like you are not going to live on the surface because your particular DNA lineage won’t be receptive to this temporal awareness manipulation.
-That’s why they went from 900,
-000 different forms to 135,
-000.
-This is all about the basis of DNA farming and how they would manipulate and limit who was going to be in the farm.
+Temporal manipulation started forty-eight to fifty-five thousand years ago.
+Not all life forms practiced temporal manipulation.
+It was about limiting the amount of life forms on the surface of the earth.
+Particular DNA lineages were not receptive to this temporal manipulation.
+We went from nine-hundred thousand different forms to one-hundred and thirty-five thousand.
+This is the basis of DNA farming.
+This is how they manipulate and limit who is going to be on the farm.
 
 Q: How can we take back our temporal awareness and use it to our advantage? Getting our gut health back? Our micro organism in the gut,
 that has a life span as part of the cojoined frequency that we are,
