@@ -1,67 +1,81 @@
-
+## The Literal Metaphor
 
 Observation is also implicate order awareness.
-Observation has been manipulated at a point when we were looking at energy beings who believed they were gods.
-The observer effect should not have come so early in the crystallization process in the system.
-Some people can have a three sense observation and still access the Ocean of Awareness,
-again the bloodline will influence that.
+The observer effect should not have come so early in the crystallization process.
+Some people can have a three sense observation and still access the ocean of awareness
+&mdash;
+another bloodline influence example.
 Free will is tainted by the bloodline.
-Fluid like a planet we are growing the additional strands of awareness and at a certain level of acceptance and integration the Ocean of Awareness and the Sea of Consciousness crystallizes and changes the bloodline.
-This is the JOURNEY OF CELESTIAL MEDIUM – ‘I transfer the allness of myself to become the celestial medium,
-I no longer need to grow in this narrative and the next narrative I grow is in the spiritual commerce network’.
+We grow additional strands of awareness.
+The ocean of awareness and the sea of consciousness crystallizes and changes the bloodline at a certain level of acceptance and integration.
+This is the journey of the celestial medium
+&mdash;
+*I transfer the allness of myself to become the celestial medium.
+I no longer need to grow in this narrative.
+The next narrative I grow is in the spiritual commerce network.*
 
-Q: How can we work with the CELESTIAL MEDIUM without overidentifying with it? We are technically hypothetical beings and as such we can believe at many things at once but the universe is going to determine what is going to manifest through our wills.
-This is where hypothetical then becomes *I am* BEING realised through engaging your belief engine that allows strands of awareness to influence intuition,
-precognition and postcognition without competition and hierarchy.
-A multidimensional aware being manifests into this 3rd dimension through creating tangible experiences by co-creating with the infinite celestial medium with the incarnate life form in the present here now.
+We are hypothetical beings.
+We can believe in many things.
+The universe determines what manifests through our wills.
+Hypothetical becomes *I am*.
+It's realized through engaging our belief engines which allow strands of awareness to influence intuition
+&mdash;
+precognition and postcognition
+&mdash;
+without competition or hierarchy.
+A multidimensional being manifests into this third dimension through created tangible experiences co-created with the infinite celestial medium.
+The incarnate life form is the expression of the present,
+the here,
+the now.
 
-Q: Sometimes I feel like *I am* watching from the distance without really jumping into the manifestation game.
-What is that all about? These often are DNA urges,
-influenced by the memories of the past,
-that keep you from creating new experiences.
-Most of us had billions of incarnations and it's vital to disconnect from those to reconnect with source in a new way to create new memories which is part of the awakening journey.
-The many forms of dramatic source disconnections will influence how you perceive the journey into celestial medium,
-agency or vehicle.
+Epigenetic urges influenced by past memories often keep us from creating new experiences.
+We have lived billions of incarnations.
+It's vital we disconnect from them and reconnect with source.
+This is the way to create new memories,
+which is part of the awakening journey.
+We sometimes over-identify with aspects of our evolution.
+Identity as myth is rarely explored,
+but it can hugely influence the way we experience life,
+and how we create in it.
+The more we identify with one part of our journey
+&mdash;
+grand earthly masters of manifestation or spiritual celestial mediums
+&mdash;
+the more we limit ourselves and inhibit our access to the possibilities of the many divine holograms.
+Buckminster Fuller immortalized the phrase
+&mdash;
+*I seem to be a verb*
+&mdash;
+when it came to considering identity.
 
-Q: Is this why we sometimes excessively identify with certain parts of our personal evolution journey? Identity as a myth is rarely explored but can hugely influence the way we experience life and how we create in it.
-The more we identify,
-in aware or unawareness,
-with one part of our journey,
-be that now as the grand earthly masters of manifestation or spiritual celestial mediums the more we limit ourselves and do not allow access to the full range of possibilities in the many existing holograms.
-
-Buckminster Fuller immortalised the phrase,
-“I seem to be a verb” when it came to considering identity.
-He wrote,
-“I live on Earth at present,
-and I don’t know what *I am*.
-I know that *I am* not a category.
-*I am* not a thing—a noun.
+```
+I live on Earth at present,
+and I don’t know what I am.
+I know that I am not a category.
+I am not a thing—a noun.
 I seem to be a verb,
-an evolutionary process—an integral function of the universe.
-”
+an evolutionary process &mdash; an integral function of the universe.
+```
 
-Identity is a strange thing; thought itself is not static but a process of movement.
-Let’s contemplate ‘*I am* A CELESTIAL MEDIUM’ here for a moment and the responsibility that comes with it at the level of one’s awareness.
-When we replace ‘*I am* a celestial medium’ with ‘I UTILISE a celestial agency,
-celestial forum or a celestial vehicle’ how does that responsibility change? By using a different metaphorical expression we are changing the very nature of the internal representation.
-By looking at celestial mediumship from this different perspective you can change the way you are identifying with it and as such gain clarity and more ease on how you interact and work with it.
-
-Ask yourself: What does Celestial Mediumship look like for me?
-Is it a SHIP that helps you sail through the Ocean of Awareness,
-the Sea of Consciousness?
-Is it a VEHICLE,
-you sit behind the wheel and drive through all levels of Consciousness?
-Is it a BUILDING you construct,
-add floors to hold space for people,
-places,
-*I am*s on this journey of awakening?
-Is it a JOURNEY,
-a continues venture taking you on a connection exploration through space time and beyond?
-
-It's all about your unique individualised way how you internalise the subject matter at hand to break down the strands of information,
-cognitise the data and make it *I am* self-realised.
-Thoughts and thought constructs expressed in images,
-metaphors can be added and alchemised into the rest of our awareness as an expression of being a multidimensional,
+Identity is a strange thing.
+Thought is not static,
+It's a process of movement.
+Different metaphors in our belief engines change the very nature of the internal representation.
+By looking at celestial mediumship from this different perspective,
+we can change the way we identify with it,
+gain clarity and ease on how we interact and work with it.
+Ask
+&mdash;
+*what does celestial mediumship look like for me*
+&mdash;
+a ship that helps us sail through the ocean of awareness and the sea of consciousness,
+a vehicle we sit behind,
+a building we construct?
+It's all about the unique way we internalize the subject matter to fractalize the strands of information,
+enter it to cognition,
+and realize it in the here and now.
+Talk in pictures.
+Metaphor may be alchemically  internalized as an expression of a multidimensional,
 multifunctional being of photonic light.
 
 Q: What does working in communion and union with earth as a celestial medium mean? It goes back to the known fundamentals:
