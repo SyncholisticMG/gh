@@ -55,3 +55,26 @@ We must say,
 I am packing this information back up,
 knowing full well that I cannot hold on to it,
 and then release it back to the universe.
+
+
+
+Our bodies adapt and evolve in this celestial medium process.
+We can’t really say we're both
+&mdash;
+an incarnate life form and a non *I am* on the celestial medium side,
+which perceives time in a much longer length.
+Whatever agenda the micro-soul has.
+it's dwarfed compared to the celestial medium's length of time.
+The agendas don’t match through length of time,
+but they are both in equal experience simultaneously.
+You experience the super long game of the celestial mind,
+and the long game of the *I am*.
+It works with the higher spirit to be in the medium space.
+From the medium space it transfers the *allness* of the *I am* into the code,
+downloads the code,
+returns to the *I am* state,
+manifests with the code,
+then puts the code back into the celestial space.
+We simultaneously experience local time to super long galactic time,
+going back and forth,
+the finite and infinite *I am* equally and continuously changing frequency without competition for temporal dominance.

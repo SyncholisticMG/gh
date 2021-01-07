@@ -1,66 +1,12 @@
 
 
-
-Q: How do our bodies adapt,
-evolve in this CELESTIAL MEDIUM process? We can’t really say that as we are both,
-a incarnate life form and a non *I am* on the celestial medium side that perceives time in a much longer length.
-Whatever AGENDA the micro soul has is dwarfed in comparison to the celestial mediums length of time.
-The agendas don’t match via length of time but they are both in equal experience simultaneously.
-You experience the super long game of the celestial mind and the long game of the *I am* who is working with the higher spirit to be in that medium space,
-to transfer the allness of the IAM into the code,
-download the code,
-come back to the *I am* state,
-manifest with it and then put the code back to the celestial space.
-Simultaneously experience,
-going from local time to super long galactic time.
-Finite and infinite *I am* equally and continuously changing frequency harmony vibration without competing with each other.
-
-Q: When you talk about AGENDAS,
-what do you mean by that? There is a FOETUS agenda that is specific from lifetime to lifetime.
-The AVATAR Agenda is evolving the greater soul’s capacity to generate light and have experiences over many thousands of *I am*s who have been foetuses.
-There are times where the oversoul or the avatar gets stuck in repetition without elimination in servitude to a system which lowers its capacity to use light and it cannot expand.
-
-Q: What is a non-agenda being? None agenda is when time is irrelevant to the great experience.
-Linear time is not the focus of the agenda.
-It may do one thing 28,
-000 years ago,
-17 things two years ago,
-2Mio things 48 million years ago and that is technically a none agenda.
-All these things that are being done in this non-agenda create a resolution for some agendas or apply potential solutions for agendas that are stuck that cannot move forward anymore.
-Non-Agenda allows you to cut and paste time based experiences out of certain *I am* experiences and uses them temporarily in a new *I am* expression to manifest past or future none agenda aspects into a present agenda.
-
-Q: Is the Crystallisation Process of the DNA part of the Celestial Medium Journey? During the awakening it is vital that our DNA becomes crystallised so that new strands of awareness,
-consciousness can have the fluidity to grow much like a plant and can make solid neural pathways into the many different dimensions.
-We are the future us….
-And there will be another future you who is a lot closer to the ‘awakening’ and your stream of light will lengthen going from an alpha to a theta pattern.
-When your wavelength lengthens the experience becomes more dense and rich.
-Full fluidity means there are no internal limitations of spirit stopping you from creating incredibly potent memories that are backed by faith and spirit.
-In these moments of now,
-where we are making the ancient future present now in a dream,
-what effect does that have on the unseen and everything you brought into this manifestation?
-By manifesting the dream as a tangible feeling people can taste,
-touch,
-know,
-sense,
-smell,
-feel and experience.
-Many people taste hearing or hear via taste or both.
-When it becomes a tangible experience it has many other unseen languages behind it that define it more by making that dreamspace tangible here now.
-It is that journey.
-Making everything real now,
-open up the Akashic Records,
-here now in the moment.
-These words have been combined in a new way to allow a new set of geometric linguistics to unfold.
-Then it can be crystallised into our greater form of growth.
-It is not just observation but sometimes the lineage has the awareness built into it and people go through awakening based off time locked experiences.
-
 Observation is also implicate order awareness.
 Observation has been manipulated at a point when we were looking at energy beings who believed they were gods.
-The observer effect should not have come so early in the crystallisation process in the system.
+The observer effect should not have come so early in the crystallization process in the system.
 Some people can have a three sense observation and still access the Ocean of Awareness,
 again the bloodline will influence that.
 Free will is tainted by the bloodline.
-Fluid like a planet we are growing the additional strands of awareness and at a certain level of acceptance and integration the Ocean of Awareness and the Sea of Consciousness crystallises and changes the bloodline.
+Fluid like a planet we are growing the additional strands of awareness and at a certain level of acceptance and integration the Ocean of Awareness and the Sea of Consciousness crystallizes and changes the bloodline.
 This is the JOURNEY OF CELESTIAL MEDIUM – ‘I transfer the allness of myself to become the celestial medium,
 I no longer need to grow in this narrative and the next narrative I grow is in the spiritual commerce network’.
 
@@ -73,7 +19,7 @@ Q: Sometimes I feel like *I am* watching from the distance without really jumpin
 What is that all about? These often are DNA urges,
 influenced by the memories of the past,
 that keep you from creating new experiences.
-Most of us had billions of incarnations and it is vital to disconnect from those to reconnect with source in a new way to create new memories which is part of the awakening journey.
+Most of us had billions of incarnations and it's vital to disconnect from those to reconnect with source in a new way to create new memories which is part of the awakening journey.
 The many forms of dramatic source disconnections will influence how you perceive the journey into celestial medium,
 agency or vehicle.
 
@@ -112,7 +58,7 @@ places,
 Is it a JOURNEY,
 a continues venture taking you on a connection exploration through space time and beyond?
 
-It is all about your unique individualised way how you internalise the subject matter at hand to break down the strands of information,
+It's all about your unique individualised way how you internalise the subject matter at hand to break down the strands of information,
 cognitise the data and make it *I am* self-realised.
 Thoughts and thought constructs expressed in images,
 metaphors can be added and alchemised into the rest of our awareness as an expression of being a multidimensional,
@@ -128,13 +74,13 @@ individual sovereignty to make it work inside you
 -        You have access to the Akash at your disposal; stop looking for external sources
 As you are more and more in the state of celestial medium you are getting more information than before you could not stay in a particular density long enough before.
 To be simultaneously here now is its own challenge.
-There is a lot of inner work that evolves to maintain that density frequency.
+There's a lot of inner work that evolves to maintain that density frequency.
 You can’t stay there all the time.
 We have to consciously step down from those high states,
 otherwise you’d vibrate out of this reality and all the work would be lost.
 Coming back into the body,
 being present,
-it is life changing,
+it's life changing,
 healing,
 revealing,
 all those universal laws that we all have.
@@ -149,7 +95,7 @@ Conversations with collectives can be an ‘insult’ party with collectives wit
 In the unlimited point of view there are a lot of ways to awaken faster without interfering.
 We just have to figure it out how and then do a test implementation.
 Give it to a collective,
-that does a metaphorical double blind study to see if it is not interference,
+that does a metaphorical double blind study to see if it's not interference,
 and find a way for it to naturally co-exist in some form of implementation.
 That’s me turning on those programs and let it go on autopilot.
 We all do that.
@@ -162,19 +108,19 @@ This will create a set of impulses generating simultaneous pre- and post cogniti
 
 Q: What is super illuminal thinking? At that level of super illuminal thinking you completely bypass chemical based experiences in memories and you are no longer operating in the zeros and ones of the sympathetic and parasympathetic.
 The vagus nerve is fully functional and all the chakras are open and fully interconnected via the central nervous system and adding to the super illuminal experience.
-So the body is adding to the sensation that it can’t process but it knows that it is super illuminal thinking as the unentangled observer.
-So it is keeping you grounded here but the consciousness can go beyond the speed of light to tens of millions of places and spaces simultaneously and collect millions of unique experiences in one millionth of a second and come back with it fully processed.
+So the body is adding to the sensation that it can’t process but it knows that it's super illuminal thinking as the unentangled observer.
+So it's keeping you grounded here but the consciousness can go beyond the speed of light to tens of millions of places and spaces simultaneously and collect millions of unique experiences in one millionth of a second and come back with it fully processed.
 Then you go out and do it again and again until you’ve had your cup full.
 Super illuminal thinking is more than we have learned,
 read and studied.
-It is knowingness growing to the next level without conscious cognition of it.
+It's knowingness growing to the next level without conscious cognition of it.
 Everyone has experienced it,
-you just didn’t know it and it is our level of practice that will determine how fast we can achieve this.
+you just didn’t know it and it's our level of practice that will determine how fast we can achieve this.
 
 Q: How does the CELESTIAL MEDIUM interact with the PLANETARY MIND? A self-spawned celestial medium is a planet’s translator that is able to speak and communicate to other celestial minds and translates from that great higher frequency into a lower density energy so that everyone can understand the common messages.
 The 7TH dimensional seed planet as a celestial medium is a bit different.
 Celestial mediums can exist on every planet,
-wherever there is a celestial mind.
+wherever There's a celestial mind.
 A lot of celestial mediums will spawn before a planet is passing on,
 before the light goes out which has happened on other worlds.
 In order to safe their own lifeforce the celestial mediums travel deeply into the future to an endpoint of its consciousness before the light of the planet,
@@ -183,7 +129,7 @@ fades out completely.
 Through this process they can find the front point of their earliest celestial mind,
 absorb it to reseed their celestial mind on another planet.
 
-Q: Is this a source recognition of itself? It is lower density beings becoming higher density beings and  part of the procreation of life.
+Q: Is this a source recognition of itself? It's lower density beings becoming higher density beings and  part of the procreation of life.
 Celestial minds have their own astral worlds.
 They have their own life reviews,
 as well as a variety of things that keep them from dying or a natural process where something that is spawn from their world,
@@ -249,7 +195,7 @@ An example of source disconnection and connection would be false Gods.
 Why would a highly aware species create false gods for life forms at a much lower level of awareness to them? For extended servitude in a hierarchical order to serve as a commodity farm.
 Farming was implemented to harvest the infinite source energy.
 The DNA farming technology allowed them to tap into the fundamental source of the exchange system.
-It is manipulating the GALACTIC COMMERCE & EXCHANGE SYSTEM.
+It's manipulating the GALACTIC COMMERCE & EXCHANGE SYSTEM.
 The Global Narrative simulates the Galactic Commerce Market and dumbs it down to its limited level in which we are made believe that we are just centric to this planet.
 The false gods where the first idols of awareness used to begin to minimise our experience to those micro levels of existence.
 The initial gods and further down the line religions became a major factor of limitation and implementation of hierarchical order.
@@ -274,10 +220,10 @@ Q: How easy is it to create karma in unawareness? Very easy.
 Let’s us use an example of resolving a greater spiritual contract in this lifetime by contemplating to walk out of a disfunctional relationship.
 The thought of it makes you feel elated.
 Your precognitive workforce gives you a preview what could happen if you did choose the experience without having to actually do it yet.
-It is possible to have a parallel set of experiences where two parallel simultaneous existing yous have a thesf catalyst choices.
+It's possible to have a parallel set of experiences where two parallel simultaneous existing yous have a thesf catalyst choices.
 The simultaneously existing *I am* chooses to walk out but you don’t or the other way round,
 it makes no difference.
-There is an infinite amount of reasons why parallel cross overs can happen.
+There's an infinite amount of reasons why parallel cross overs can happen.
 Either way it brings the old karmic journey to zero balance and creates a new one.
 Why? Because of the law of entanglement.
 And also,
@@ -308,7 +254,7 @@ the encoding of the strands.
 Every strand represents a different level and capacity of memories being stored which then enfold into an implicate order of greater awareness.
 DNA can store frequencies of time.
 
-Q: Is this how we remember past lives? It is not the only way,
+Q: Is this how we remember past lives? It's not the only way,
 there are other ways to remember past lives.
 The organisation of your strands and the rungs that connect your strands will determine how much you can remember from past lives.
 There are certain strands that block out all past lives,
@@ -323,7 +269,7 @@ As a result,
 measurements performed on one system seem to instantaneously influence the other system(s) entangled with it,
 so that none of the entangled states can be considered to be isolated from one another.
 Let’s look at the ‘spooky law’ through the disentanglement and entanglement of the incarnate life form to source.
-There is the entanglement within the hologram of a planet,
+There's the entanglement within the hologram of a planet,
 that has a surface,
 subsurface and astral timelines.
 Separate from its surface timeline,
@@ -348,16 +294,16 @@ all in the DNA.
 Think of the scientist having  a spiritual contract to do that experiment,
 planned in the foetus of the womb,
 achieved through free will.
-In a structure scientific experiment like the ‘Spooky action at the distance’ you have 6 secs to think about your answer it could be a pre-imposed cognition because it is an experiment that is being recorded,
+In a structure scientific experiment like the ‘Spooky action at the distance’ you have 6 secs to think about your answer it could be a pre-imposed cognition because it's an experiment that is being recorded,
 re-observed by multiple people who are unentangled observers from the moment of the creation of the construct.
 It will be shown to other scientific people who repeat the experiment too.
-Therefore it is pre-imposed cognition through intuition.
+Therefore it's pre-imposed cognition through intuition.
 
 Q: Is there a greater DNA entanglement in families? Our DNA is entangled through the foetus of the womb planning opening a multitude of potentials omnidirectionally.
 There are plenty of people within a family that do not have a great connection to each other.
-It is really about the spiritual contract of the experience through the scientific revelation and reasoning of its purpose.
+It's really about the spiritual contract of the experience through the scientific revelation and reasoning of its purpose.
 
-Q: What about inventions that have been simultaneously published in different localities or not far apart? There is the DNA connective tissue entanglement but are those inventors with same ideas part of the soul sentient,
+Q: What about inventions that have been simultaneously published in different localities or not far apart? There's the DNA connective tissue entanglement but are those inventors with same ideas part of the soul sentient,
 soul family? As mentioned earlier it all comes down to the foetus in the womb planning who is going to take a thought construct into direct manifestation? Who is there as an entangled or unentangled observer and who will eventually market it and when? Remember,
 not all parallel histories are exactly the same.
 There are many parallel histories in which Tesslar’s perception was a lot more prevalent than Bells.
@@ -377,9 +323,9 @@ an unlimited amount of data to process into thought constructs and information t
 
 THE FEMALE CYCLE: AN EXAMPLE OF MANIPULATION &  ENTANGLEMENT THROUGH ‘SPOOKY DISTANCE’
 Technically,
-there is a 3rd eye in the heart too which is often activated through child birth.
+There's a 3rd eye in the heart too which is often activated through child birth.
 Men have to create much more consciously than women who are going through that physiological change during pregnancy and childbirth assisting in the creation of that heart spaced 3rd eye.
-It is fair to say that the menstruation cycle is a way for the rods and cones to align with the 3rd eye plus the ones in the heart,
+It's fair to say that the menstruation cycle is a way for the rods and cones to align with the 3rd eye plus the ones in the heart,
 rectum or clitoris,
 all extensions of the 3rd eye.
 A man’s 3rd eye can travel to the tip of the penis and connect into the womb portal from there.
@@ -422,7 +368,7 @@ the connective tissues transfer energy,
 lifeforce to assist in that birth by another simultaneous version of yourself who lacks fertility power or lives in an environment with no fertility at all.
 That allows the mystical births to happen for the baby that should have never survived or lived.
 Evening Primrose Oil is one of the natural remedies to reduce hot flashes.
-This plant oil is being harvested as an essence to lessen the effect in this reality and at the same time it is amplifying the experience on the unseen side.
+This plant oil is being harvested as an essence to lessen the effect in this reality and at the same time it's amplifying the experience on the unseen side.
 
 Q: Can you talk about the changes in estrogen and progesterone during menopause? Here we are looking at the manipulation of the body’s chemicals that will determine if DNA is going to be activated or not.
 Some strands in the DNA need a special chemical soup in the body to activate fertility.
@@ -449,9 +395,9 @@ business they leave their legacy for their clan,
 their tribe and nation.
 Men build an archive of experiences that can stay manifested through space and time in which lineages in the unseen can start planning lives through the infrastructure created through that urge of manifestation.
 Men meet their sexual peak energies around the age 18 whereas women reach their peak in their 30s.
-This is why it is important for that infrastructure in the unseen to be planned for.
+This is why it's important for that infrastructure in the unseen to be planned for.
 That has also been manipulated by DNA Farming.
-Once again if natural birthing weren’t manipulated the way it is most pregnancies would be a 18 to 24 months.
+Once again if natural birthing weren’t manipulated the way it's most pregnancies would be a 18 to 24 months.
 In some instances,
 depending on the soul it can be up to five years.
 The umbilical cord wouldn’t be cut off sometimes for months.
@@ -461,7 +407,7 @@ Q: Is Testosterone driving the creativity in men? Yes and there are other parts 
 Like a scientist doesn’t use testosterone,
 he uses another version of it,
 more like a mental aspect versus I need a sledgehammer to create.
-There is no scientific name for that yet in this reality.
+There's no scientific name for that yet in this reality.
 There are several hundred forms of testosterone,
 each with a different chemical chain that allows a different nature of creation.
 Through ways of manipulation of our incarnate life form we are not producing the all encompassing testosterone which keeps us in fight,
@@ -502,12 +448,12 @@ We also live in a time where they do not teach of our DNA lineage.
 They teach of mathematics and DNA and RNA and how it can be easily changed and altered.
 Well,
 that is true because DNA is still light in another form.
-It is visible on one spectrum and invisible on another spectrum.
+It's visible on one spectrum and invisible on another spectrum.
 When our consciousness reaches the peak of where we are right now in our cells there's a part of our super consciousness that's working with this reality,
 constantly encoding every micro second of fraud time into light into our memory.
 Memory is not physical.
 Memory,
-is it tangible? Is it electronic? It is a form of light that has to be stored into an experience.
+is it tangible? Is it electronic? It's a form of light that has to be stored into an experience.
 ​​​​​​​We,
 as streams of consciousness have thousands of sub carrier codes of millions of different experiences inside us.
 And all we have to do is tune into that memory and we can go into that stream of experience at any scale we desire using a variety of tools.
@@ -521,12 +467,12 @@ auditing of the self.
 
 
 Q: Is this also the part of the DNA that refers to the Precognitive Workforce? Yes,
-and there is a precognitive and postcognitive workforce also.
+and There's a precognitive and postcognitive workforce also.
 The PRECOGS are aligning the infinite set of choices,
 the plan A,
 B,
 C… the choices for this particular moment.
-POSTCOGNITIVE WORKFORCE is fixing some of the perception mistakes so that there is a clear line of understanding that there is a past,
+POSTCOGNITIVE WORKFORCE is fixing some of the perception mistakes so that There's a clear line of understanding that There's a past,
 present and future and the evolution of thought into constructism itself.
 All that is happening based on the choices that we are making here in time.
 There are choices that we make that are outside of time too as celestial mediums and at whatever higher state of awareness we choose to emanate at that moment,
@@ -539,22 +485,22 @@ It can be an account of your past and future lives intersecting,
 losing or gaining potentials on the journey of your soul.
 People often meet their guides and guardians and others they have met during their lifespan.
 In order for it to be considered a near death experience the body has to still go through the trauma of it.
-It is when the aura somewhat pops in a metaphorical sense and the initially contained life force start excuding the body.
-After that pop there is this vacuum of energy where the body must produce more chi and maintain it to stay alive.
+It's when the aura somewhat pops in a metaphorical sense and the initially contained life force start excuding the body.
+After that pop There's this vacuum of energy where the body must produce more chi and maintain it to stay alive.
 The last breaths are using up the body’s last alchemical fuel from birth.
 In the NDE the brain loses the interconnectivity with the organs whilst the organs still remain a part of the hologram.
 The *I am*ness begins to disintegrate its technological structure and you go back to the Ocean of Awareness where you may have lasting attachments to who you have been in previous lifetimes.
 This can trigger life reviews and direct healings of the body connecting you back into the original blue print of health.
 Some people have visions of all different places and spaces of potentialities to refill the soul’s capacity.
-Going through this transcendence phase it is vital to maintain that auric bubble around themselves to not drain out their life force energy  There are times when you come back from a NDE as an educated illuminated being meaning the other side taught you something very specific.
-It is a change in spiritual contracts,
+Going through this transcendence phase it's vital to maintain that auric bubble around themselves to not drain out their life force energy  There are times when you come back from a NDE as an educated illuminated being meaning the other side taught you something very specific.
+It's a change in spiritual contracts,
 with a new set of DNA based coded purposes.
 This is not necessarily a walk in experience as walk ins are extremely rare and often get misidentified with NDEs.
 
 
 Q: Is it true to say that we are leaving time & space when going through a NDE? Yes,
 with a NDE you are leaving the timespace equation as you are moving into the Ocean of Awareness and then from there you come back.
-Once you lose connection to the organs and it is just the vagus nerve and the spinal column reporting data the body has gone through enough shut down to facilitate that.
+Once you lose connection to the organs and it's just the vagus nerve and the spinal column reporting data the body has gone through enough shut down to facilitate that.
 What essentially happens is that you are disconnected from the hologram because you are not supported by the aura anymore.
 You can’t maintain that internal energy flow,
 it just keeps flowing out of the body.
@@ -569,7 +515,7 @@ depending on what kind of NDE you have,
 you can go to a very high density and dimensional realm.
 This is when the foetus in the womb had a grand goal that you had not achieved yet and you can be sent to 7th  or 8th density to experience life from there and then return with some of those potent memories intact.
 Often people are so overwhelmed by the experience and think they can’t live up to that energy being that they perceived themselves as.
-And the message is that you can as it is already who you are and the NDE has assisted you to discover that.
+And the message is that you can as it's already who you are and the NDE has assisted you to discover that.
 Those experiences would be contracted out beforehand in the foetus in the womb planning.
 
 Bystanders can sometimes accompany that soul through the experience of meeting loved ones on the other side be that now in NDE or death scenario.
@@ -601,7 +547,7 @@ This is how it creates a linear time stamp.
 Through those near death experiences the body releases those energies hence they come into the forefront of your awareness.
 As an infinite being in the Ocean of Awareness you can still experience those feeling as part of the transition process.
 The physical reactions can help people to acknowledge and give meaning and resolution to their experience once they return from a NDE.
-As the body takes the last breaths there is a chemical reaction going on for as much as seven days afterwards,
+As the body takes the last breaths There's a chemical reaction going on for as much as seven days afterwards,
 still a form of attachment,
 a process of letting go of the frequency of thoughts and feelings.
 In many mourning rituals you stay with the dead body to honour and witness the letting go journey of all the karmas and dharmas as an alchemical form of resolution for the deceased as well as the family members.
@@ -629,12 +575,12 @@ That is known as the false light technology.
 
 Just like with ghost scenarios,
 when going through life reviews one doesn’t necessarily have all the higher levels of awareness available.
-A lot of times when the life review starts the soul is shattered into thousands of different shards and it is the oversoul that comes in and patches them back together.
+A lot of times when the life review starts the soul is shattered into thousands of different shards and it's the oversoul that comes in and patches them back together.
 It takes out the negative soul shards,
 puts them into a secondary file where another foetus from another womb may use those soul shards from another life,
 a past life and integrate it into the infinite foetus blueprint choice so that shard can get resolution in another lifetime.
 Remember soul shards are not *I am*s.
-There is help from the oversoul to have a greater experience through creating liftetime after lifetime.
+There's help from the oversoul to have a greater experience through creating liftetime after lifetime.
 We have access to the oversoul right now,
 just a thought away,
 will you believe it,
@@ -650,7 +596,7 @@ You can be both at the same time depending on the issues in the ancestral lineag
 2.
 	THE JOURNEY TO CELESTIAL MEDIUMSHIP OF PEACE
 Q: What is the CELESTIAL MEDIUM OF PEACE? When you have elevated yourself and you go through the journey of transferring the consciousness of your allness to become the celestial medium of peace.
-It is operating in the physical,
+It's operating in the physical,
 the red and blue road as well as on the celestial road and its many brothers and sisters.
 
 Q: What are celestial minds? We learn this through astrology,
@@ -664,7 +610,7 @@ We begin to work collectively with them at the celestial medium level.
 What needs to be resolved through peace at the minds of how the planets work.
 
 Q: Is becoming a celestial medium of peace our birthright? Yes,
-there is a linear process to it before it becomes fully non-linear.
+There's a linear process to it before it becomes fully non-linear.
 The linear process is self-mastery,
 understanding the length of your waveform,
 how strong and potent you are so when you go through the conscious aware choice to become that celestial medium between the celestial minds and the surface minds for the generation of subject matters of peace.
@@ -678,9 +624,9 @@ There are celestial commerce exchange systems that can allow matter to matter ma
 
 Q: Will we all become celestial mediums of peace? No,
 the celestial medium of peace purpose is a very narrow band in the general awakening.
-The selfspawns had the contract to do it 20 or 40 years ahead of time so that it was seeded in the 3-5 previous generations so there is colloquial now presentation of the very concept.
+The selfspawns had the contract to do it 20 or 40 years ahead of time so that it was seeded in the 3-5 previous generations so There's colloquial now presentation of the very concept.
 You’ve got to create concepts and language that have a staying power so that there are general jumps creating the various bubbles of reality and the different levels of awareness and consciousness.
-It prepares you ahead of time for when you then in the flow and it is not about any of the common topics of the global narrative distracting from a greater growth,
+It prepares you ahead of time for when you then in the flow and it's not about any of the common topics of the global narrative distracting from a greater growth,
 then celestial medium of peace will be there for anyone to connect with our planet.
 Before you leave her world to become a a part of the greater group out there she’s got some stuff to tell you.
 Just like covid is our story,
@@ -689,7 +635,7 @@ it’s a story we might relate to some Pleiadians around a fire.
 3.
    THE UNVANQUISHED DREAM OF PEACE
 Q: What is meant with the APPARATUS OF INFINITE INTERCONNECTIVITY – THE HUB OF INTERCONNECTIVITY? The apparatus of infinite interconnectivity is the many simultaneous existing selves who create the network between themselves that form the hub of interconnectivity.
-It is also part of your pre- and post cognitive workforce.
+It's also part of your pre- and post cognitive workforce.
 The UNVANQUISHED DREAM is an aspect of the apparatus which then gives you even greater connection to all the versions of yourself who are sharing that perspective.
 THE UNVANQUISHED DREAMER OF PEACE comes in here too.
 Its purpose is to connect to and interconnect to all the forgotten and remembered oceans of awareness and many seas of consciousness that are in the multiverse which is layered on top of all the forms of thought and awareness and to connect them in a single time-space location in which they can manifest the wordsmith creation.
@@ -737,7 +683,7 @@ You are a signature frequency match to your precognitive workforce and to the co
 all of the *I am*s that are a part of your great hall of Akashic Records.
 
 Q: Would you be treading on someone’s journey if you sent out your precognitive workforce to help them in a co-creational way?  There’s always a fine line where too much is too much.
-If the other being has no precognition or any form of understanding of what a precognitive workforce is then you will be stepping on their journey unless it is an infant or a young child who hasn’t formed an *I am* yet.
+If the other being has no precognition or any form of understanding of what a precognitive workforce is then you will be stepping on their journey unless it's an infant or a young child who hasn’t formed an *I am* yet.
 Most children don’t fully form the *I am* until puberty when their thymus gland creates 300 new forms of chemicals that suddenly floods the body to create puberty itself which solidifies the *I am* technology as a time-space equation.
 
 Q: So where would they send out their precognitive workforce from,
