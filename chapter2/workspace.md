@@ -1,62 +1,37 @@
 
+### The Farm
 
-
-### Source Connection
-
-Source connection is living in the light worlds,
-the worlds above the elemental and chemical,
-while grounded in the body,
-finite and infinite at the same time.
-We disconnect to contrast being connected.
-It's an aspect of the lesson here
+There are many boogeyman stories out there.
+Every culture has them.
+It's the devil in Christianity,
+Satan is Islam,
+the archons for the Gnostics,
+the many and varied monsters of HP Lovecraft,
+and too many more to list.
+They are all fundamentally true,
+or,
+a better way of saying it,
+is that they are contextually true.
+There are two gradients of truth that must line up in any investigation
 &mdash;
-disconnection to understand connection.
-We see this fundamental duality of the divine hologram everywhere
-&mdash;
-the yin and yan of the Tao,
-Carl Jung's extraordinary work on duality and the shadow,
-the juxtaposition to the light.
-Not many voices have clearly articulated the disconnection teaching before.
-The thread of life goes everywhere in the universe,
-and that *thread* has a connectivity bandwidth exponentially beyond fiber optic,
-and yet we,
-this human race,
-underwent the sensation of disconnection from source as an experience.
-Realize what that means.
-We're like Chilean miners trapped in a collapsed coal mine.
-That's how the connected species in the sentience circus that is our galaxy see us,
-hardcore.
-As we have steadily moved into self-awareness as a species,
-propelled as we were by Gutenberg,
-the Western enlightenment,
-the Industrial Revolution,
+details and context.
+If you get the details right in the wrong context the truth will not unlock for you,
+and if you get the right context and the wrong details you are similarly locked out of the truth.
+The context of our situation has always been correct.
+We are beset by negative,
+regressive,
+parasitic creatures which impede us,
+slow us,
 and,
-lest we forget,
-the iPhone,
-we have seen this disconnection in the collective mind.
-It rippled through with French Existentialism as chic twentieth century philosophy,
-spurred on by the First World War,
-no doubt,
-the trauma of it,
-the horror of it all.
-One of the earliest portrait's of this dislocation would most certainly be Mister Kurtz,
-from Joseph Conrad's *Heart of Darkness*,
-the perfect literary tone struck for the twentieth century,
-published in 1899,
-a harbinger if ever there was one.  
-We are here to experience disconnection from source.
-Oneness has no meaning if we don’t understand the disconnection journey first.
+in the worst cases,
+control and dominate us.
+The truth is the earth is a genetics farm.
+The only real commodity in creation is genetics.
 
-The charge & polarity created through entanglement in the GLOBAL NARRATIVE is a typical example of that.
-The Global Narrative is teaching us both at the same time through the false science,
-physics,
-belief systems.
-False light,
-as a technology commonly used here,
-is generally representing the source disconnection.
-An example of source disconnection and connection would be false Gods.
-Why would a highly aware species create false gods for life forms at a much lower level of awareness to them? For extended servitude in a hierarchical order to serve as a commodity farm.
-Farming was implemented to harvest the infinite source energy.
+
+
+
+Our infinite source energy is the harvest.
 The DNA farming technology allowed them to tap into the fundamental source of the exchange system.
 It's manipulating the GALACTIC COMMERCE & EXCHANGE SYSTEM.
 The Global Narrative simulates the Galactic Commerce Market and dumbs it down to its limited level in which we are made believe that we are just centric to this planet.
