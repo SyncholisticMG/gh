@@ -1,73 +1,53 @@
 
 
-Q: How does the CELESTIAL MEDIUM interact with the PLANETARY MIND? A self-spawned celestial medium is a planet’s translator that is able to speak and communicate to other celestial minds and translates from that great higher frequency into a lower density energy so that everyone can understand the common messages.
-The 7TH dimensional seed planet as a celestial medium is a bit different.
-Celestial mediums can exist on every planet,
-wherever There's a celestial mind.
-A lot of celestial mediums will spawn before a planet is passing on,
-before the light goes out which has happened on other worlds.
-In order to safe their own lifeforce the celestial mediums travel deeply into the future to an endpoint of its consciousness before the light of the planet,
-stream of energy,
-fades out completely.
-Through this process they can find the front point of their earliest celestial mind,
-absorb it to reseed their celestial mind on another planet.
 
-Q: Is this a source recognition of itself? It's lower density beings becoming higher density beings and  part of the procreation of life.
-Celestial minds have their own astral worlds.
-They have their own life reviews,
-as well as a variety of things that keep them from dying or a natural process where something that is spawn from their world,
-celestially inspired,
-might even be an aspect of the planet that is gone to that ancient future space to receive that energy so that it can continue its infinite experience.
-As a celestial medium here on earth you work with signature frequency matches for your capacity to translate.
-The success lies how grounded you are in the physical plane,
-in the body,
-that you are manifested in as well as your capacity to take in those energies,
-decode the 1 million letter alphabet,
-translate it and then pack the code back up and give it back to the celestial source.
+### Source Connection
 
-4.
-   THE AWAKENING JOURNEY through DISCONNECTION & RECONNECTION TO SOURCE
-Q: What was the initial plan for Earth? We are living on a 7th dimensional galactic seed planet and Earth can teleport itself through time and space to seed blank Akashic Record worlds with lifeforce to start recording their own Akash.
-Over millions of years prime creators had peaceful agreements with the celestial sources until someone figured out how the Galactic system of commerce and exchange worked and started skimming off the top like the Galactic Mafia.
-Once we start reconnecting to source we can then become the celestial mediums of peace and start using the womb chakras to create as per Earth’s original plan to seed new life and bring celestial minds into the planet to bond within the solar system.
-That celestial mind will then extend spiritual contracts to a sun and the sun extend its contracts to the lifeforce crafted onto it connecting it to the Galactic Celestial Commerce Market.
-
-Q: What is the bigger picture on the awakening journey? The awakening is a re-emergence of the awareness strand of Galactic Commerce through celestial minds using celestial mediums as the guides and guideposts of the many frequencies of time.
-This will allow the Ocean of Awareness to go into the Sea of Consciousness and generate incarnations and reincarnations within a Solar System that determines the scale of their incarnation: A Solar System,
-an energetic being or a physical being within a world to experience the strands of connectivity.
-Celestial minds who will then operate within galactic time in a Solar System .
-This will also include all the forgotten selves in the void space that may have been effected by time based wars.
-
-Q: What went wrong and how do we get back on track? Earth was originally created for the unique experience to spawn new galaxies but instead was heavily manipulated into becoming a DNA farm by means of the time travel wars.
-Source disconnection and reconnection became that greater journey because the DNA manipulators were using the earth womb chakras to abuse people’s DNA to create servitude to false gods.
-
-The purpose and mission for us here now is to experience the infinite ways of soul dis- and reconnection.
-Earth offers a vast variety of messages and concepts to learn SOUL DISCONNECTION.
-The more we learn to disentangle from the system of domination and control and from past lives gone awry the more we can step into the understanding of what true SOUL CONNECTION is.
-There are people on this earth that have been planning hundreds of lifetimes in advance to come here now to assist with this process.
-I call that that the RESISTANCE OF FREE EARTH.
-Their purpose here is to find the soul codes among all of our commonality of species,
-and then complete them.
-Once we have a complete soul code as a species,
-domination and control can no longer keep us separate as soul families and ultimate soul connection.
-
-Q: What does source disconnection mean? Source disconnection is the representation of the journey of learning self-illumination.
-Understanding the universal laws and the role of consciousness within those universal laws of the hologram that will lead to self-illumination via the journey of self-healing,
-self-mastery,
-understanding and application of personal sovereignty.
-
-Q: What does source connection mean and teach us? Source connection is all about learning how to simultaneously exist as a multidimensional,
-multifunctional photonic being of light as the DNA Light body matrix of one.
-Living simultaneously as a finite and infinite incarnate life form in this spacetime equation as well as at a greater level outside of time on the celestial medium journey.
-Source connection can still happen without the awareness of the celestial medium journey.
-Choosing the multidimensional approach to source connection will make it easier though to understand how we are connected to source.
-Take the example of abuse at a young age.
-How can one heal from it faster? By developing spiritual skills to have intense source connection on both sides of the pendulum,
-becoming a wider frequency,
-vibration and harmony being for drama and conflict resolution.
+Source connection is living in the light worlds,
+the worlds above the elemental and chemical,
+while grounded in the body,
+finite and infinite at the same time.
+We disconnect to contrast being connected.
+It's an aspect of the lesson here
+&mdash;
+disconnection to understand connection.
+We see this fundamental duality of the divine hologram everywhere
+&mdash;
+the yin and yan of the Tao,
+Carl Jung's extraordinary work on duality and the shadow,
+the juxtaposition to the light.
+Not many voices have clearly articulated the disconnection teaching before.
+The thread of life goes everywhere in the universe,
+and that *thread* has a connectivity bandwidth exponentially beyond fiber optic,
+and yet we,
+this human race,
+underwent the sensation of disconnection from source as an experience.
+Realize what that means.
+We're like Chilean miners trapped in a collapsed coal mine.
+That's how the connected species in the sentience circus that is our galaxy see us,
+hardcore.
+As we have steadily moved into self-awareness as a species,
+propelled as we were by Gutenberg,
+the Western enlightenment,
+the Industrial Revolution,
+and,
+lest we forget,
+the iPhone,
+we have seen this disconnection in the collective mind.
+It rippled through with French Existentialism as chic twentieth century philosophy,
+spurred on by the First World War,
+no doubt,
+the trauma of it,
+the horror of it all.
+One of the earliest portrait's of this dislocation would most certainly be Mister Kurtz,
+from Joseph Conrad's *Heart of Darkness*,
+the perfect literary tone struck for the twentieth century,
+published in 1899,
+a harbinger if ever there was one.  
+We are here to experience disconnection from source.
 Oneness has no meaning if we don’t understand the disconnection journey first.
 
-Q: What would constitute a simultaneous source disconnection and connection? The charge & polarity created through entanglement in the GLOBAL NARRATIVE is a typical example of that.
+The charge & polarity created through entanglement in the GLOBAL NARRATIVE is a typical example of that.
 The Global Narrative is teaching us both at the same time through the false science,
 physics,
 belief systems.

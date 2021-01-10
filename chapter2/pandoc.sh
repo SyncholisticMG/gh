@@ -1,1 +1,15 @@
-pandoc agendas.md celestialMedium.md crystalization.md fairies.md literalMetaphor.md mandela.md mindHeartGut.md mineral.md spatial.md splitConsciousness.md temporalManipulation.md thymus.md weather.md -o chapter2.docx
+agendas.md
+celestialMedium.md
+crystalization.md
+fairies.md
+literalMetaphor.md
+mandela.md
+mindHeartGut.md
+mineral.md
+personalEffort.md
+spatial.md
+splitConsciousness.md
+superluminal.md
+temporalManipulation.md
+thymus.md
+weather.md

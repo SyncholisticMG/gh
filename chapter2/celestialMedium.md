@@ -78,3 +78,43 @@ then puts the code back into the celestial space.
 We simultaneously experience local time to super long galactic time,
 going back and forth,
 the finite and infinite *I am* equally and continuously changing frequency without competition for temporal dominance.
+
+
+### Reincarnation of Celestial Mind
+
+
+
+
+A self-spawned celestial medium is a planet’s translator,
+able to speak to and communicate with other celestial minds,
+and it translates from the higher frequency to the lower density energy,
+allowing everyone to understand the common messages.
+The seventh-dimensional seed planet as a celestial medium is a bit different.
+Celestial mediums can exist on every planet,
+wherever there's a celestial mind.
+A lot of celestial mediums will spawn before a planet's demise,
+right before the light goes out.
+This has happened on other worlds.
+To save their own life force,
+the celestial mediums travel into the future,
+to an endpoint of its consciousness,
+just before the light of the planet
+&mdash;
+the literal stream of energy
+&mdash;
+fades out completely.
+They locate the front point of their earliest celestial mind and absorb it,
+then they seed their celestial mind on another planet.
+
+The life of celestial minds is inspiring,
+like everything else in creation.
+It's really just one thing happening at different levels.
+Just as the white wisp of seedling leaves the dandelion with the slightest wind at just the right time in its cycle,
+so too are the seeds of celestial minds blown from one field to another,
+one world to another in this scale.
+It's just life.
+No different than the turnings of nature here.
+Celestial minds have their own astral worlds.
+They have their own life reviews.
+They possess a variety of means to stave off death,
+natural processes by which something is spawned from their world.
