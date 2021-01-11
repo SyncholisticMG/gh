@@ -5,10 +5,10 @@ Glossary of Terms
 ## Akashic record
 
 
-It is the cellular memory of our earth,there is a crust on our earth that is below the earth layer that is granite,granite is 65-75% crystalline,that structure in its own concept is a data storage unit as well as an interactive co-creative,spiritual,physical intra-exchange device of history,anything that has psychic record is recorded in the akashic record.
+It is the cellular memory of our earth,there is a crust on our earth that is below the earth layer that is granite,granite is 65-75% crystalline,that structure in its own concept is a data storage unit as well as an interactive co-creative,spiritual,physical intra-exchange device of history,anything that has psychic record is recorded in the Akashic record.
 
 
-Akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body dna.
+Akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,Akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body DNA.
 
 
 The AR is a recording of every single sentient experience in this world through the neutral perspective of the planet that’s holding space for free willed life.
@@ -171,7 +171,7 @@ Is when all of our previous selves that made the best possible choices for us as
 
 
 
-## Foetus in our mother’s womb 
+## Foetus in our mother’s womb
 
 
 Our greatest source connection. Interconnectivity to all.
@@ -210,7 +210,7 @@ Great Mystery will never be solved.
 
 
 
-## Hierarchical order. 
+## Hierarchical order.
 
 
 The pecking order at which our perception drives into different levels of charge or polarity. Hierarchical order is design to create charge and polarity to create resolution with iam agenda driven beings.
@@ -387,7 +387,7 @@ Non competition is a way of living life daily on the seen and unseen layers of y
 
 
 
-## Non-hierarchical order 
+## Non-hierarchical order
 
 
 This is a emanation of one's own expression to be fully in one's own dna skin suit making lasting changes to the “you” the I am now who is the “agenda’ based resolving self. Non hierarchical order is a medium to belne the agenda and non agenda based parts of the singularity that is you.
@@ -418,7 +418,7 @@ The unentangled observer is part of the Akashic Record – they are a stream of 
 ie. Crown Jewels that hold imprinted power over people / hypnosis.
 
 
-## Offworld Abductions 
+## Offworld Abductions
 
 When they put you on a different timeline, a lot of time women, you may
 not realise it but you may have been pregnant 50 times with an offworld
@@ -564,7 +564,7 @@ Declarations of Sovereignty and non consent are magic as they undo spells and co
 Claiming sovereignty will begin to transform your life and allow you to co create in your full capacity as a free willed multi-dimensional, universal being. To be sovereign we must practice free will at all times.
 
 
-## Synchronicity 
+## Synchronicity
 
 
 It all depends on your perspective first and then your perception behind that perspective. A synchronicity can be anything from a fly landing on your nose and you going to whack it and punch yourself in the face , so you suddenly realise you’re too aggressive with yourself, to an anti Trump video that makes you laugh so hard you pee your pants . A synchronicity can be anything . It’s really about the moment in which it happens and then the acknowledgement that the divine is there working with you at some level.
