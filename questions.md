@@ -11,3 +11,9 @@ self-spawned??
 It's manipulating the galactic commerce and exchange system.
 
 what is this?
+
+
+Our Solar System is moving into another galactic groove with more light and into the eighth color of time.
+
+
+eighth color of time??

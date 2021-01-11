@@ -87,21 +87,28 @@ and it was good and right until the Jesuits mercilessly massacred them precisely
 corrosive to the created gods narrative of the *civilized* peoples of the world.
 
 
-
-
-
-Q: How can we disentangle from the Global Narrative? In order to disentangle from the Global Narrative we have to temporarily accept the 3rd Dimension as our infinite source connected space until such a time we realise that 4th dimension is just a bridge dimension into new strands of  more dimensional awareness.
-The surface world is going through a densification of light as our Solar System is moving into another galactic groove with more light into the 8th colour of time.
-Part of accepting the 3rd dimension means to get back to natural living,
+To disentangle from the global narrative,
+we have to temporarily accept the third dimension as our infinite source-connected space,
+until we realize the fourth dimension is a bridge dimension to new strands of dimensional awareness.
+The surface world becoming more dense with light.
+Our Solar System is moving into into the eighth color of time,
+a *galactic groove* with more light.
+Acceptance of the third dimension means going back to natural living,
 back to simplicity,
-being present in the body now,
+being present in the body,
 using this time now to heal,
-to nurture to nourish the incarnate life form.
+to nurture and nourish the incarnate life form.
 Inviting joy,
-bliss and pleasure back into your life which is part of the original purpose of coming here to Earth.
-The grand enjoyment and creation of life,
-the journey from finite to infinite with death as a simple marker point for the change of energy before entering  the infinite frequency again.
-In order to fully engage in this experience and understand spirituality we have to take the mystical out of the mysticism which will then result in mystical and magical synchronicities.
+bliss,
+and pleasure back into our lives,
+fulfilling part of the original purpose of coming here to earth
+&mdash;
+the grand enjoyment and creation of life,
+the journey from finite to infinite,
+death a simple marker point for the translation before entering  the infinite frequency again.
+In order to fully engage in this experience,
+to spirituality understand,
+we have to take the mystical out of mysticism to engage mystical and magical synchronicities.
 Part of that is the great forgetting at birth.
 
 Q: How easy is it to create karma in unawareness? Very easy.
