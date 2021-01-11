@@ -33,12 +33,62 @@ The only real commodity in creation is genetics.
 
 Our infinite source energy is the harvest.
 The DNA farming technology allowed them to tap into the fundamental source of the exchange system.
-It's manipulating the GALACTIC COMMERCE & EXCHANGE SYSTEM.
-The Global Narrative simulates the Galactic Commerce Market and dumbs it down to its limited level in which we are made believe that we are just centric to this planet.
-The false gods where the first idols of awareness used to begin to minimise our experience to those micro levels of existence.
-The initial gods and further down the line religions became a major factor of limitation and implementation of hierarchical order.
-Our narrative offers us a very limited and distorted picture on what is actually available to us as our birth right and legacy; an upside down,
-inside out worldview and nowhere near to what is truly possible.
+It's manipulating the galactic commerce and exchange system.
+The global narrative,
+the disinformation stream from the control system on the planet now,
+simulates the galactic commerce market,
+but,
+in doing so,
+it mutes it to a planetary narrative.
+That is an imposed limitation.
+Our connectivity goes into all the dimensions and right back to the source of time and life itself.
+They created false gods.
+We were entrained to worship them.
+These false gods were the first idols of awareness.
+They were deliberately created to minimize our experience of reality by minimizing what we imagined to be reality.
+He who controls context controls the debate,
+the oldest maxim of debate,
+retaught to successive generations right to this day at Oxford,
+Yale,
+and Harvard.
+The first gods and religions limited our consciousness growth and entrained us to hierarchical order
+&mdash;
+*right away governor,
+his lordship's permission to speak*,
+and a million other linguistic artifacts of mental colonization.
+Our spiritual birthright and legacy are robbed.
+When someone popped into remind us
+&mdash;
+and her you can pencil in a near endless list of sages,
+shamans,
+prophets,
+mystics,
+and masters
+&mdash;
+they were dealt with swiftly and harshly,
+especially if the message spread too quickly.
+We are told it's difficult to learn how to walk
+&mdash;
+baby steps!
+&mdash;
+and never even told we can fly.
+Where people lived through the lies,
+usually in native cultures,
+they correctly adduced their environment was a living lesson of what human consciousness can do.
+Nature has an eagle,
+so,
+naturally,
+a human being seeing the eagle would try to imagine what the eagle might see from that vantage,
+then,
+lo and behold,
+they realized they could fly without wings,
+that their imaginations were doorways to higher consciousness,
+and it was good and right until the Jesuits mercilessly massacred them precisely because they were spiritually toxic and infectious,
+corrosive to the created gods narrative of the *civilized* peoples of the world.
+
+
+
+
 
 Q: How can we disentangle from the Global Narrative? In order to disentangle from the Global Narrative we have to temporarily accept the 3rd Dimension as our infinite source connected space until such a time we realise that 4th dimension is just a bridge dimension into new strands of  more dimensional awareness.
 The surface world is going through a densification of light as our Solar System is moving into another galactic groove with more light into the 8th colour of time.
