@@ -10,7 +10,7 @@ Glossary of Terms
 It is the cellular memory of our earth,there is a crust on our earth that is below the earth layer that is granite,granite is 65-75% crystalline,that structure in its own concept is a data storage unit as well as an interactive co-creative,spiritual,physical intra-exchange device of history,anything that has psychic record is recorded in the akashic record.
 
 
-Akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body dna.
+Akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body DNA.
 
 
 The AR is a recording of every single sentient experience in this world through the neutral perspective of the planet that’s holding space for free willed life.
@@ -236,10 +236,10 @@ is the 10 thousand past generations and 10 thousand future generations in the Au
 ## Humans
 
 
-Are not living computers, we are algorithms. Computers are hardware. We are a continuous infinite string of perception and numbers in which a dna instrument of experience processes into many different colours of time and space . A data processing machine .
+Are not living computers, we are algorithms. Computers are hardware. We are a continuous infinite string of perception and numbers in which a DNA instrument of experience processes into many different colours of time and space . A data processing machine .
 
 
-We are streams of photonic light in a dna skinsuit
+We are streams of photonic light in a DNA skinsuit
 
 
 We were a biological , pre-cognitive logistical communications and direct manifestation workforce going with scores of different founder species all around the galaxies and universe As we accompanied them on their path we observed the great mysteries of the galaxies meaning we too had been in the great path. This is when we founded Lemuria under the watchful eyes of the founder species and we cocreate with the celestial mind of earth.
@@ -278,7 +278,7 @@ Medicine has many variables, awareness of realms you’re going to,
 The I Am is here in time and was constructed by the higher self during womb time . It is based off several previous I AM selves who have gone through life reviews and set up a theme of karma or dhama for the next life.
 
 
-By the age of 4/5 your dna activates your I AM technology, and the rest of the I AM comes in during puberty
+By the age of 4/5 your DNA activates your I AM technology, and the rest of the I AM comes in during puberty
 
 
 When you die your Higher Self is waiting for you to come in again as it’s in contact with your 10k other selves past and future. It is an observer.
@@ -318,7 +318,7 @@ Was solely created for this reality. No other place uses linear time like we do.
 That’s why it’s a unique experience and the GAM is such a highly prized machine.
 
 
-Because it’s an engine of belief woven together through thousands and millions of generations born in a dna skinsuit 987k skinsuits hold all the resolutions. 80% not on surface.
+Because it’s an engine of belief woven together through thousands and millions of generations born in a DNA skinsuit 987k skinsuits hold all the resolutions. 80% not on surface.
 
 
 
@@ -392,7 +392,7 @@ Non competition is a way of living life daily on the seen and unseen layers of y
 ## Non-hierarchical order 
 
 
-This is a emanation of one's own expression to be fully in one's own dna skin suit making lasting changes to the “you” the I am now who is the “agenda’ based resolving self. Non hierarchical order is a medium to belne the agenda and non agenda based parts of the singularity that is you.
+This is a emanation of one's own expression to be fully in one's own DNA skin suit making lasting changes to the “you” the I am now who is the “agenda’ based resolving self. Non hierarchical order is a medium to belne the agenda and non agenda based parts of the singularity that is you.
 
 
 
@@ -485,7 +485,7 @@ Will never overwhelm you because that would be stepping on your journey. As long
 
 
 
-Our precognitive workforce is us - that has the capacity to understand I can create an infinite amount of conscious time travel me’s that can go into the future, into the past and prepare a resource of knowledge and information that’s instantly called on-able as masterful manifestations of inspiration in the moment to out create anything that is a negative , dampening, sucking, draining, frequency within the system of domination and control. A more deeper explanation: your I AM precognitive workforce also is all of your other versions of self that are simultaneously existing that have earned and learned and relearned the rights of awareness. That’s means that if your choosing to be a spiritually aware being that all time space exists and that you’re contemplating all aspects of it there are frequencies out there that are not positive, some are negative, although some are positive and you as this I AM here now being make this declaration in your frequency that I am a being of equal cocreation non competition non hierarchal dreaming I AM breakaway dna light body civilisation of one who has been here in this dnaskinsuit this lifetime who is now gonna use my great work to make a great impact on those that I love, my family, my clan, my nation, my tribe and my earth mother. And I’m choosing to do that on all the scales. That means I need a masterful precognitive workforce which is my birthright and legacy to create as a natural cocreative evolutionary being who’s a part of the great dreamtime awakening using my responsibility to have an impact on the loves of my life, the themes and ideologies that I’m wishing to promote to others so that they can find their own self illumination and belief free from external gurus who are sending them down the paths to false illumination. Our precognitive workforce is there waiting for us to be inspired to work with it, to think with it, to love with it, to be with it as part of our greater expression. For us to have the expression we must have the experience and for us to have the experience we must put the time , effort , energy and expression in to our self belief that it is a true force that we can call upon our inner geniuses from many dimensions , timestreams , galaxies and universes to form a collective of us who are all part of this dream time awakening so we can free our selves from the perception of limitation by the global narrative.
+Our precognitive workforce is us - that has the capacity to understand I can create an infinite amount of conscious time travel me’s that can go into the future, into the past and prepare a resource of knowledge and information that’s instantly called on-able as masterful manifestations of inspiration in the moment to out create anything that is a negative , dampening, sucking, draining, frequency within the system of domination and control. A more deeper explanation: your I AM precognitive workforce also is all of your other versions of self that are simultaneously existing that have earned and learned and relearned the rights of awareness. That’s means that if your choosing to be a spiritually aware being that all time space exists and that you’re contemplating all aspects of it there are frequencies out there that are not positive, some are negative, although some are positive and you as this I AM here now being make this declaration in your frequency that I am a being of equal cocreation non competition non hierarchal dreaming I AM breakaway DNA light body civilisation of one who has been here in this DNAskinsuit this lifetime who is now gonna use my great work to make a great impact on those that I love, my family, my clan, my nation, my tribe and my earth mother. And I’m choosing to do that on all the scales. That means I need a masterful precognitive workforce which is my birthright and legacy to create as a natural cocreative evolutionary being who’s a part of the great dreamtime awakening using my responsibility to have an impact on the loves of my life, the themes and ideologies that I’m wishing to promote to others so that they can find their own self illumination and belief free from external gurus who are sending them down the paths to false illumination. Our precognitive workforce is there waiting for us to be inspired to work with it, to think with it, to love with it, to be with it as part of our greater expression. For us to have the expression we must have the experience and for us to have the experience we must put the time , effort , energy and expression in to our self belief that it is a true force that we can call upon our inner geniuses from many dimensions , timestreams , galaxies and universes to form a collective of us who are all part of this dream time awakening so we can free our selves from the perception of limitation by the global narrative.
 
 
  So in effect do they work also as a hub of interconnectivity?
@@ -497,7 +497,7 @@ They are the apparatus of interconnectivity.
 Have shamans of old always used their precognitive workforce?
 
 
-Yes they just used them in their era of light or their theme of times way. Every generation reinterprets the previous generation the next generation interprets the next generation and then there are the rebel few who stop reinterpreting and get back to the source of creation and look at that as their only interpretation and that’s where we understand we are all of our past present and future selves simultaneously existing and there are versions of ourselves out there where equal cocreation non competition non hierarchal order I AM breakaway dna civilisations of one who are also a signature frequency match to be with you, your precognitive workforce, and you are part of their precognitive workforce forming a collective of the highest forms of your light soul teachers, all of the I AMs that are a part of your great hall of askashic records of all I Ams presences, past , present and future who are a collective of non competition equal cocreation dreaming I am being manifest in your body.
+Yes they just used them in their era of light or their theme of times way. Every generation reinterprets the previous generation the next generation interprets the next generation and then there are the rebel few who stop reinterpreting and get back to the source of creation and look at that as their only interpretation and that’s where we understand we are all of our past present and future selves simultaneously existing and there are versions of ourselves out there where equal cocreation non competition non hierarchal order I AM breakaway DNA civilisations of one who are also a signature frequency match to be with you, your precognitive workforce, and you are part of their precognitive workforce forming a collective of the highest forms of your light soul teachers, all of the I AMs that are a part of your great hall of askashic records of all I Ams presences, past , present and future who are a collective of non competition equal cocreation dreaming I am being manifest in your body.
 
 
  So it wouldn’t be treading on someone’s journey if you sent out your precognitive workforce to help them in a cocreational way?
@@ -533,7 +533,7 @@ You are an I am agenda driven being with spiritual contracts to be here now to b
 ## Race Amnesia
 
 
-26k years ago it began affecting 65% of the living population in dna lineages.
+26k years ago it began affecting 65% of the living population in DNA lineages.
 
 
 By the Dark ages 98% of population had completely lost the oral and intuitive teaching present in all sentience with consciousness actively processing their life path as manifest beings.
@@ -783,7 +783,7 @@ Looking at your own limitations. The very act of looking for your own limitation
 The collective and upper collective exist in the connectivity of the water.
 
 
-Water is a medium of mass manipulation and dna evolution.
+Water is a medium of mass manipulation and DNA evolution.
 
 
 

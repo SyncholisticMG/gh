@@ -1,5 +1,5 @@
 ## Body
 
 
-The dna instrument of our perception and experience
+The DNA instrument of our perception and experience
 
