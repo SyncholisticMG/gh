@@ -1,6 +1,6 @@
 
-The Awakening Journey
-==============================
+## The Awakening Journey
+
 
 
 We live on a seventh dimensional seed planet.

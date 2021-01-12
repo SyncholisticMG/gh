@@ -1,4 +1,4 @@
-## MIND HEART GUT SUPER HIGHWAY
+## Mind Heart Gut Super Highway
 
 Sometimes the mind processes better than the heart,
 or the gut,

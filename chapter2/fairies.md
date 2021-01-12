@@ -1,4 +1,4 @@
-## FAIRIES
+## Fairies
 
 There exists entire realities sightly out of phase with humanity.
 One of these is the fairy kingdom

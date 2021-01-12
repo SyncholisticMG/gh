@@ -1,4 +1,4 @@
-### Personal Effort
+## Personal Effort
 
 We all have the birthright of celestial mediumship.
 Our ability to inherit our birthright is conditional.
