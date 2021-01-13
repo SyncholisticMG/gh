@@ -76,7 +76,6 @@ It balances out the old karmic journey and creates a new one
 the law of entanglement.
 
 
-
 The great awakening transcends karma.
 The awakening is the end of karma as universal law.
 Karmic entanglement is no longer to be used as universal law.
@@ -87,3 +86,58 @@ The great awakening is going to backstop it.
 A new system of resolution for thought,
 word,
 and deed is coming into place.
+
+
+
+
+
+Karma as an entanglement experiment describes a quantum state that is not entirely independent of other states,
+whether or not the individual objects are spatially separated.
+As a result,
+measurements performed on one system seem to instantaneously influence the other system(s) entangled with it.
+None of the entangled states are isolated from one another.
+Let’s look at Einstein's spooky law through the disentanglement and entanglement of the incarnate life form to source.
+There's the entanglement within the hologram of a planet surface
+&mdash;
+subsurface and astral timelines
+&mdash;
+Separate from its surface timeline,
+which is a DNA farm cultivated for harvest.
+In this instance,
+which is the example of earth,
+source connection and disconnection become a primarily surface based experience.
+That experience as a choice based process promotes the unlimited point of view
+&mdash;
+entangled and unentangled observer and experiencer of the universal and galactic sources
+&mdash;
+even though we are still embodied on a planetary surface separate from the solar system’s awareness.
+Earth is a unique place of mass DNA farming.
+It can lead to mass awakening through individual choice and responsibility.
+
+
+The person creating an experiment is creating a construct that has connective tissue in the unseen world.
+It allows data transference from the unseen layers of one DNA frequency to another.
+Certain people have windows in the unseen layers which allow information to bleed through.
+It bleeds through the five senses
+&mdash;
+as a processing system
+&mdash;
+to create a limited form of awareness in the entangled connected tissues.
+The five senses create the sixth sense,
+the intuition and awareness of it.
+These connective tissues are all in the DNA.
+
+Our DNA is entangled through the fetus in the womb planning.
+It sets a multitude of potentials omnidirectionally.
+There are plenty of people within a family who do not have a great connection to each other.
+It's purpose is revealed in the spiritual contract.
+Look at entanglement through thought constructs.
+An example is living with a person for a long time and generating a point of view about them.
+The construct makes for very easy interaction because of the many neural pathways between the two people.
+This creates additional pattern recognition,
+which results in more thoughts.
+We then project the entire thought construct onto that person.
+The construct must be broken at some point because it will impede objectivity.
+It will become the norm.
+We create and break these thought constructs,
+the conscious aspect of entanglement.

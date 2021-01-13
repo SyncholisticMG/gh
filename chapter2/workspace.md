@@ -1,189 +1,5 @@
 
 
-DNA is part of the founder’s technology.
-It is the connective tissue from the ocean of awareness and sea of consciousness to a light based wisdom,
-intelligence,
-and consciousness for any animated biological or non-biological entity.
-It was fundamental when this universe was being created,
-a unique experience compared to other universes.
-There are many variations of DNA.
-Non-biological DNA is solidified matter which can have DNA based rungs and structures within its growth patterns,
-with its own inherent intelligence.
-The crystal and mineral communities don’t need to walk to have an experience.
-Walking is a unique experience.
-An entire line of creation springs from it.
-
-The DNA strand organization,
-or the strands themselves,
-create the weave of the DNA,
-the encoding of the strands.
-Every strand represents a different level and capacity of memory storage.
-They enfold into an implicate order of greater awareness.
-DNA can store frequencies of time.
-This how we remember past lives,
-but not the only way.
-There are other ways to remember past lives.
-The organization of your strands,
-and the rungs that connect your strands,
-determine how much you can remember from past lives.
-Certain strands block out all past lives
-&mdash;
-negative strands of wisdom and awareness.
-Many people within the awakening will replace negative with positive strands.
-On the other side of the awakening new strands will be added to our capacity.
-
-Q: How does the quantum experiment ‘SPOOKY ACTION AT A DISTANCE’ relate to the source connection and disconnection and can you give us an example?
-This ENTANGLEMENT experiment describes a quantum state that is not entirely independent of other states,
-whether or not the individual objects are spatially separated.
-As a result,
-measurements performed on one system seem to instantaneously influence the other system(s) entangled with it,
-so that none of the entangled states can be considered to be isolated from one another.
-Let’s look at the ‘spooky law’ through the disentanglement and entanglement of the incarnate life form to source.
-There's the entanglement within the hologram of a planet,
-that has a surface,
-subsurface and astral timelines.
-Separate from its surface timeline,
-which is a harvestable farm,
-source connection and disconnection becomes primarily a surface based experience.
-That experience,
-as a choice based process,
-will promote the unlimited point of view,
-as entangled and unentangled observer and experiencer of the universal and galactic sources,
-even though you are still embodied on a planetary surface separate from the solar system’s awareness.
-Earth is a unique place of mass DNA farming that can lead to mass awakening through individual choice and responsibility.
-This is the teaching of what this awakening is all about.
-
-Q: Let’s look at CONNECTIVE TISSUE to explore this entanglement experiment in more detail? The person creating an experiment is creating a construct and that construct has connective tissue in the unseen world that allows data transference from the unseen layers of one DNA frequency to another.
-Certain people have windows in the unseen layers that allow information to bleed through,
-through the 5 senses to create a limited form of awareness through the entangled connected tissues.
-The 5 senses are used as a processing system,
-creating the 6th sense which then generates the INTUITION and awareness of it.
-
-Q: Are these connective tissues in the DNA? Yes,
-all in the DNA.
-Think of the scientist having  a spiritual contract to do that experiment,
-planned in the foetus of the womb,
-achieved through free will.
-In a structure scientific experiment like the ‘Spooky action at the distance’ you have 6 secs to think about your answer it could be a pre-imposed cognition because it's an experiment that is being recorded,
-re-observed by multiple people who are unentangled observers from the moment of the creation of the construct.
-It will be shown to other scientific people who repeat the experiment too.
-Therefore it's pre-imposed cognition through intuition.
-
-Q: Is there a greater DNA entanglement in families? Our DNA is entangled through the foetus of the womb planning opening a multitude of potentials omnidirectionally.
-There are plenty of people within a family that do not have a great connection to each other.
-It's really about the spiritual contract of the experience through the scientific revelation and reasoning of its purpose.
-
-Q: What about inventions that have been simultaneously published in different localities or not far apart? There's the DNA connective tissue entanglement but are those inventors with same ideas part of the soul sentient,
-soul family? As mentioned earlier it all comes down to the foetus in the womb planning who is going to take a thought construct into direct manifestation? Who is there as an entangled or unentangled observer and who will eventually market it and when? Remember,
-not all parallel histories are exactly the same.
-There are many parallel histories in which Tesslar’s perception was a lot more prevalent than Bells.
-Or wooden ships stayed a lot longer as there wasn’t the same level of metal refinery in the states or the rest of the world.
-Or other parallel realities where the steel mills where prevalently in Germany.
-There can be bleed throughs and then that person jumps to these timelines,
-it won’t come up in this reality but they will still be in the same historical reference.
-
-The other side of this is looking at entanglement through THOUGHT CONSTRUCTS.
-A thought construct is when we are living with a person for a long time we generate a point of view about them.
-That is a construct that makes very easy observation about someone because you have many neural pathways between the two of you,
-which then creates additional pattern recognition and consequently more thoughts.
-You then project the entire thought construct onto that person or not.
-Healing & self mastery can reverse it.
-This is also where the pre- and post cognitive workforce come in as your personal human resource department you have in yourself,
-an unlimited amount of data to process into thought constructs and information to stay connected.
-
-THE FEMALE CYCLE: AN EXAMPLE OF MANIPULATION &  ENTANGLEMENT THROUGH ‘SPOOKY DISTANCE’
-Technically,
-There's a 3rd eye in the heart too which is often activated through child birth.
-Men have to create much more consciously than women who are going through that physiological change during pregnancy and childbirth assisting in the creation of that heart spaced 3rd eye.
-It's fair to say that the menstruation cycle is a way for the rods and cones to align with the 3rd eye plus the ones in the heart,
-rectum or clitoris,
-all extensions of the 3rd eye.
-A man’s 3rd eye can travel to the tip of the penis and connect into the womb portal from there.
-Menstrual cramps & pains are often a sign of being out of alignment in those areas.
-A most beneficial prayer technique for women during their cycle is to call in all their thoughts,
-ideas,
-constructs,
-energies from previous menstruation cycles and detach from them on a month to month basis.
-These powerful times for women are being high jacked and bastardised by the Global Narrative.
-The menstrual blood is very powerful as an energy of being a negotiator,
-an arbitrator,
-a  conciliar,
-a diplomat,
-a pacifier,
-a placator,
-peacemaker,
-an appeaser ….
-.
-
-FROM EARTHLY to UNIVERSAL PRO-CREATION IN THE FEMALE CYCLE
-Q: What happens during menopause? ‘Meno’ meaning less as well as ‘pause’ indicating interrupted,
-suspended action can be a misleading usage of words when we realise what is really going on.
-The woman still goes through her cycles without blood manifestation.
-The fertility spirits that are attached to it have moved on to a higher density.
-The DNA is no longer producing the unique experience of bleeding but the spiritual mechanics remain the same and are even more intensified through menopause.
-In most women’s cases,
-when they are experiencing heavy menopausal symptoms,
-they are actually giving birth in other simultaneous realities where lower amounts of births are prevalent.
-Their remaining fertile life force is going to alter versions of themselves who for some reason didn’t get pregnant.
-Using their biological clock they can find a signature frequency match to complete interdimensional birthing as part of their karmic resolution.
-
-Q: What are HOT FLUSHES? Hot flushes can happen when an alternate version of you is going through the breaking of the birth water and is more than likely going to die from the birth.
-You are transferring chemical lifeforce based on your experience to avoid this.
-A hot flush can also be another version of you in another place and time in an alien form,
-in which the birth got difficult.
-Remember,
-birthing is part of karmic resolution.
-Through the strands of awareness in your DNA,
-the connective tissues transfer energy,
-lifeforce to assist in that birth by another simultaneous version of yourself who lacks fertility power or lives in an environment with no fertility at all.
-That allows the mystical births to happen for the baby that should have never survived or lived.
-Evening Primrose Oil is one of the natural remedies to reduce hot flashes.
-This plant oil is being harvested as an essence to lessen the effect in this reality and at the same time it's amplifying the experience on the unseen side.
-
-Q: Can you talk about the changes in estrogen and progesterone during menopause? Here we are looking at the manipulation of the body’s chemicals that will determine if DNA is going to be activated or not.
-Some strands in the DNA need a special chemical soup in the body to activate fertility.
-It used to be manipulated in the overall chemistry of the body so other strands have more opportunities to awaken instead of that particular fertility strand.
-What happens to a woman who never gave earthly birth and is going through a very difficult time during menopause? Another version of her simultaneous existence will go through a birthing experience and they both will be intrinsically linked in order to reduce the overall negative effect.
-There are other experiences where many simultaneous existing souls going through menopause to assist the galaxies or universe to generate new life in the celestial nurseries and give birth to a brandnew soul frequency to be brought into the Ocean of Awareness.
-From there that soul frequency can begin the journey into the Sea of Consciousness and manifest in time and space.
-
-Q: What about the fatty deposits around the midline during menopause?  This serves as a protective membrane but it can at times be a blockade to good experiences too with regards to working with a woman’s residual image.
-Once the biological fertility clock stops ticking the ‘awareness clock’ takes over where you can gain a greater awareness and perspective of the awakening.
-Your legacy to the future,
-be it applied to your local family or to a bigger bubble of reality.
-This journey to greater levels of awareness can trigger great psychic skills as much as great depression depending on the mental acuity and the particular coping skills each individual has.
-
-Q: What about the mood swings ? You can experience mood swings when the body is trying to find the right chemistry,
-a balance between over and underproducing hormones and chemicals.
-Keep in mind though that an imbalance here in this lifetime is balancing somewhere else when taking the ancestral perspective into account.
-
-Q: What about men? Men go through menopause too and they also have their individual process through cycles of creation.
-As they actualise their physical manifestations,
-a house,
-artwork,
-business they leave their legacy for their clan,
-their tribe and nation.
-Men build an archive of experiences that can stay manifested through space and time in which lineages in the unseen can start planning lives through the infrastructure created through that urge of manifestation.
-Men meet their sexual peak energies around the age 18 whereas women reach their peak in their 30s.
-This is why it's important for that infrastructure in the unseen to be planned for.
-That has also been manipulated by DNA Farming.
-Once again if natural birthing weren’t manipulated the way it's most pregnancies would be a 18 to 24 months.
-In some instances,
-depending on the soul it can be up to five years.
-The umbilical cord wouldn’t be cut off sometimes for months.
-This would allow bigger bonding between the partners and have more opportunity for the father to have ritual connection to the child with the mother as the medium of that connection.
-
-Q: Is Testosterone driving the creativity in men? Yes and there are other parts similar to testosterone that drive other constructing factors.
-Like a scientist doesn’t use testosterone,
-he uses another version of it,
-more like a mental aspect versus I need a sledgehammer to create.
-There's no scientific name for that yet in this reality.
-There are several hundred forms of testosterone,
-each with a different chemical chain that allows a different nature of creation.
-Through ways of manipulation of our incarnate life form we are not producing the all encompassing testosterone which keeps us in fight,
-flight and freeze.
-The glands have been manipulated to produce one strand of testosterone over the other which leads us back to the cerebellum in the motor cortex.
-
 Q: What about the manipulation through birth control pill and the water contamination through it? Do you know what modern birth control pill is? Giant farms of female horses that are forever pregnant and they harvest the urine which is being used as birth control.
 The pill is basically based off a slave pregnancy regime.
 A horse doesn’t have a choice to get pregnant or not.
@@ -283,23 +99,23 @@ so that you stay invested in an era of light and don’t check out before your t
 As you are leaving time and space,
 depending on what kind of NDE you have,
 you can go to a very high density and dimensional realm.
-This is when the foetus in the womb had a grand goal that you had not achieved yet and you can be sent to 7th  or 8th density to experience life from there and then return with some of those potent memories intact.
+This is when the fetus in the womb had a grand goal that you had not achieved yet and you can be sent to 7th  or 8th density to experience life from there and then return with some of those potent memories intact.
 Often people are so overwhelmed by the experience and think they can’t live up to that energy being that they perceived themselves as.
 And the message is that you can as it's already who you are and the NDE has assisted you to discover that.
-Those experiences would be contracted out beforehand in the foetus in the womb planning.
+Those experiences would be contracted out beforehand in the fetus in the womb planning.
 
 Bystanders can sometimes accompany that soul through the experience of meeting loved ones on the other side be that now in NDE or death scenario.
 Life reviews can be seen as random moments,
 even though everything has an underlying universal order.
 When one has a life review as part of their NDE it was to close the spiritual contracts and grow beyond them because the soul in the internal and external infrastructure hasn’t been able to resolve those issues.
-It also helps the understanding of the existential structure of how the foetus in the womb plans all sets of experiences including traumas,
+It also helps the understanding of the existential structure of how the fetus in the womb plans all sets of experiences including traumas,
 dramas,
 karmas,
 dharmas.
 Often when doctors,
 nurses or family members perceive light leaving the body that can be the chi,
 the lifeforce leaving the body at the end of the transition process.
-It all depends on how the life & death experience has been orchestrated in the foetus planning.
+It all depends on how the life & death experience has been orchestrated in the fetus planning.
 It does happen that people have magical unique deaths as another way of assisting their loved ones to mend broken faith,
 accept the mystical in front of them and ease them into the griefing process.
 
@@ -347,8 +163,8 @@ Just like with ghost scenarios,
 when going through life reviews one doesn’t necessarily have all the higher levels of awareness available.
 A lot of times when the life review starts the soul is shattered into thousands of different shards and it's the oversoul that comes in and patches them back together.
 It takes out the negative soul shards,
-puts them into a secondary file where another foetus from another womb may use those soul shards from another life,
-a past life and integrate it into the infinite foetus blueprint choice so that shard can get resolution in another lifetime.
+puts them into a secondary file where another fetus from another womb may use those soul shards from another life,
+a past life and integrate it into the infinite fetus blueprint choice so that shard can get resolution in another lifetime.
 Remember soul shards are not *I am*s.
 There's help from the oversoul to have a greater experience through creating liftetime after lifetime.
 We have access to the oversoul right now,
