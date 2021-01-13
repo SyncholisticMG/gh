@@ -80,10 +80,6 @@ going back and forth,
 the finite and infinite *I am* equally and continuously changing frequency without competition for temporal dominance.
 
 
-### Reincarnation of Celestial Mind
-
-
-
 
 A self-spawned celestial medium is a planet’s translator,
 able to speak to and communicate with other celestial minds,
