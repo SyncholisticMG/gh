@@ -74,10 +74,10 @@ the final state of being.
 
 
 ```
- One generation passeth away, and another generation cometh: but the earth abideth for ever.
+One generation passeth away, and another generation cometh: but the earth abideth for ever.
 
- Ecclesiastes 1:4
- ```
+Ecclesiastes 1:4
+```
 
 
 

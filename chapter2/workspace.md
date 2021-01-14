@@ -1,58 +1,34 @@
 
 
-What is a Near Death Experience (NDE)? A near death experience would be part of spiritual contract to allow you to see who,
-what,
-where you have been this life time since you took your first breath aided by your mother’s placenta in her womb.
-It can be an account of your past and future lives intersecting,
-losing or gaining potentials on the journey of your soul.
-People often meet their guides and guardians and others they have met during their lifespan.
-In order for it to be considered a near death experience the body has to still go through the trauma of it.
-It's when the aura somewhat pops in a metaphorical sense and the initially contained life force start excuding the body.
-After that pop There's this vacuum of energy where the body must produce more chi and maintain it to stay alive.
-The last breaths are using up the body’s last alchemical fuel from birth.
-In the NDE the brain loses the interconnectivity with the organs whilst the organs still remain a part of the hologram.
-The *I am*ness begins to disintegrate its technological structure and you go back to the Ocean of Awareness where you may have lasting attachments to who you have been in previous lifetimes.
-This can trigger life reviews and direct healings of the body connecting you back into the original blue print of health.
-Some people have visions of all different places and spaces of potentialities to refill the soul’s capacity.
-Going through this transcendence phase it's vital to maintain that auric bubble around themselves to not drain out their life force energy  There are times when you come back from a NDE as an educated illuminated being meaning the other side taught you something very specific.
-It's a change in spiritual contracts,
-with a new set of DNA based coded purposes.
-This is not necessarily a walk in experience as walk ins are extremely rare and often get misidentified with NDEs.
-
-
-Q: Is it true to say that we are leaving time & space when going through a NDE? Yes,
-with a NDE you are leaving the timespace equation as you are moving into the Ocean of Awareness and then from there you come back.
-Once you lose connection to the organs and it's just the vagus nerve and the spinal column reporting data the body has gone through enough shut down to facilitate that.
-What essentially happens is that you are disconnected from the hologram because you are not supported by the aura anymore.
-You can’t maintain that internal energy flow,
-it just keeps flowing out of the body.
-Once we lost that bubble around us we are no longer in the shared reality rules and begin to waver between many different worlds including the Ocean of Awareness,
-as our ancestral connection.
-The Sea of Consciousness is more for the many dreaming beings travelling back and forth,
-contracted with you on linear and non-linear scales,
-so that you stay invested in an era of light and don’t check out before your time.
-
-As you are leaving time and space,
-depending on what kind of NDE you have,
-you can go to a very high density and dimensional realm.
-This is when the fetus in the womb had a grand goal that you had not achieved yet and you can be sent to 7th  or 8th density to experience life from there and then return with some of those potent memories intact.
-Often people are so overwhelmed by the experience and think they can’t live up to that energy being that they perceived themselves as.
-And the message is that you can as it's already who you are and the NDE has assisted you to discover that.
-Those experiences would be contracted out beforehand in the fetus in the womb planning.
-
-Bystanders can sometimes accompany that soul through the experience of meeting loved ones on the other side be that now in NDE or death scenario.
+Bystanders sometimes accompany the soul when meeting loved ones on the other side.
 Life reviews can be seen as random moments,
 even though everything has an underlying universal order.
-When one has a life review as part of their NDE it was to close the spiritual contracts and grow beyond them because the soul in the internal and external infrastructure hasn’t been able to resolve those issues.
-It also helps the understanding of the existential structure of how the fetus in the womb plans all sets of experiences including traumas,
-dramas,
-karmas,
-dharmas.
-Often when doctors,
-nurses or family members perceive light leaving the body that can be the chi,
-the lifeforce leaving the body at the end of the transition process.
-It all depends on how the life & death experience has been orchestrated in the fetus planning.
-It does happen that people have magical unique deaths as another way of assisting their loved ones to mend broken faith,
+When one has a life review as part of their NDE it is about the spiritual contracts,
+help to grow beyond them because the soul,
+in the internal and external infrastructure,
+hasn’t been able to resolve the issues.
+The fetus in the womb plans all sets of experiences,
+including the NDE.
+
+When doctors or nurses or family members perceive light leaving the body that can be the etheric,
+the life force leaving the body at the end of the transition process.
+This is actually a verifiable phenomenon.
+The energy has light mass.
+The body is twenty to twenty-two grams lighter after death.
+It all depends on how the life and death experience is planned in the fetus.
+Some people have mystical deaths.
+These deaths are another way of assisting others to mend broken faith.
+One such death was the Catholic mystic and Trappist Monk,
+Thomas Merton,
+who died in a freak accident coming out of the shower,
+falling,
+reaching to a fan for support,
+then electrocuting himself through faulty wiring in the fan.
+He was attending an inter-faith conference in Thailand.
+The Buddhist monks hosting the conference immediately defined it as a mystical death.
+The terminology was not invented for Merton's passing.
+The mystical death is one of four types of death in Buddhist teaching.
+
 accept the mystical in front of them and ease them into the griefing process.
 
 Q: What is the difference between a NDE to an Outer Body Experience (OBE)? OBEs are generally astral travel which is very different to  NDE.
