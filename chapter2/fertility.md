@@ -110,3 +110,29 @@ Through manipulation of our bodies we are not producing the all encompassing tes
 flight,
 or freeze.
 Our glands have been manipulated to produce one strand of testosterone over the other which leads us back to the cerebellum in the motor cortex.
+
+
+
+The birth control pill is manufactured from giant farms of female horses.
+The urine of a pregnant horse is the chemical basis of the birth control pill.
+The horses are pregnant their entire life.
+Their colts are taken and chopped up into horse meat sold to pet food manufacturers and fast food restaurants.
+The entire industry revolves around the urine of pregnant horses for human birth control pills.
+Many women reject the different types of pills.
+There's a malaise associated with the pill they can feel.
+They become worse and worse until they get the birth control pill out of their lives.
+Before the horse urine birth control pill there were plenty of natural herbal remedies to stop pregnancy.
+Like most lineage medicine
+&mdash;
+ayurveda,
+traditional Chinese medicine,
+homeopathy,
+naturopathy,
+and others
+&mdash;
+it was delegitimized and marginalized by the big allopathic medical footprint that coincided with the big push into the twentieth century economy,
+in which everything was patented,
+synthetically replicated,
+restricted to *licensed* practitioners,
+taxed
+and brought into the mercantile system.
