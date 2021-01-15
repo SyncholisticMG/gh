@@ -114,3 +114,41 @@ Celestial minds have their own astral worlds.
 They have their own life reviews.
 They possess a variety of means to stave off death,
 natural processes by which something is spawned from their world.
+
+
+
+
+When we have elevated ourselves,
+we transfer consciousness of our allness to become the celestial medium of peace.
+It operates in the physical world,
+the red and blue road,
+and on the celestial road with its many brothers and sisters.
+We learn through astrology how different worlds affect us.
+We work with celestial minds which incarnate into our world and other worlds,
+both physical and non-physical,
+and as entangled and unentangled observers.
+We work with them at the celestial medium level.
+
+
+Becoming a celestial medium of peace is our birthright.
+The journey is linear at first then it becomes fully non-linear.
+The linear process is self-mastery.
+We come to understand the length of our waveform,
+how strong and potent we are.
+This is so when we can go through the conscious choice to become the celestial medium between celestial minds and surface minds for the generation.
+We learn how to bring unique concepts of peace to places and space of time that are looking for that medium to inspire new layers of peace.
+As more people come into celestial mediumship,
+the global narrative will become more irrelevant.
+Humanity will slowly realize the global narrative is irrelevant to the bigger streams of time.
+We will detoxify from roman numeral time,
+and we could probably enter a system of commerce beyond the Babylonian money system.
+There are celestial exchange systems that allow matter to matter manifestations from one density to another.
+
+The celestial medium of peace role is not for everybody.
+It will be a percentage of the population.
+The celestial medium of peace souls had the contract to do this twenty or forty years ahead of time.
+It has been seeded in the three to five previous generations.
+The event is being prepared.
+The celestial medium of peace group is a kind of celestial support system.
+They are creating concepts and language to navigate the changes.
+The celestial medium of peace will be there for anyone to connect with our planet.

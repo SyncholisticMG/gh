@@ -141,3 +141,17 @@ The construct must be broken at some point because it will impede objectivity.
 It will become the norm.
 We create and break these thought constructs,
 the conscious aspect of entanglement.
+
+
+
+We are not stuck in reincarnation.
+We incarnate and reincarnate.
+In the first part of our lives we might be a reincarnating soul.
+If we break through the false propaganda we may become an incarnating soul.
+Or we start as an incarnating soul,
+then run into a karma cluster that makes us into a reincarnating soul,
+repeating karmic cycles
+&mdash;
+a rinse and repeat that doesn't stop until you break out of the karma.
+You can be both at the same time.
+It depends on your ancestral lineage.
