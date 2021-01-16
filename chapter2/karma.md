@@ -129,7 +129,7 @@ These connective tissues are all in the DNA.
 
 Our DNA is entangled through the fetus in the womb planning.
 It sets a multitude of potentials omnidirectionally.
-There are plenty of people within a family who do not have a great connection to each other.
+There are plenty of people within a family who don't have a great connection to each other.
 It's purpose is revealed in the spiritual contract.
 Look at entanglement through thought constructs.
 An example is living with a person for a long time and generating a point of view about them.

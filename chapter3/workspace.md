@@ -1,86 +1,5 @@
 
 
-## Yellow Box
-
-The theories in which astronomers and scientists explain the origins of the universe is a myth that has created belief engines through the divided incomplete view of modern day science and the disconnect between cosmology,
-science & spirituality.
-In order to understand the complexity of the creation story,
-human and planetary evolution and history it comes down to adopting a unified view of the holographic nature of reality which is not linear and beyond scientific sets of equations.
-We first need to understand time.
-Time and the nature of reality as a holographic system that continuously evolves,
-adapts,
-changes content and rules and simultaneously updates events in the past,
-present and future.
-Time is a social agreement,
-a paradox with different timelines,
-time genocide,
-creational and uncreational events.
-As such the history as we know it is incomplete,
-falsified and subject to change in the years to come.
-
-Q: What do you mean by time is a social agreement?
-We need to look at time from the bigger perspective.
-
-The consciousness of our sun continuously raises.
-The total sine-wave of consciousness that represents our solar system,
-spiralling around the galactic central sun,
-means we can go a little faster.
-Time gets redefined at this point as our concept of time is very distorted.
-A time frame stated in a book is not really a reliable form of reference as time doesn’t work linearly and history changes depending on what timeline you are looking at.
-Time here right now is just a social agreement.
-How many calendars do we have in this world?
-How many areas of time do we entangle with?
-Universal time,
-Greenwich mean time,
-Daylight-Savings Time.
-Time is no longer a universal concept so when we look at events in the past we need to take the manipulation of time through time travel,
-time line genocide as well as the hijacking of events for gaining power & supremacy into consideration.
-
-
-Q: Let’s talk about the evolutionary history of this planet through the farming principle used by the Founder Beings?
-Technically we were not a farm in the very beginning.
-When the founder beings created us we were the infrastructure that kept their cities,
-countries,
-nations,
-space stations repaired,
-self updated and clean.
-They kept us as butlers and servants,
-we were I-phones not living beings to them.
-They perceived us as all as programmable DNA robots.
-Millions of us went on these extended journeys with them around the universe and we got exposed to some of the universal experiences which allowed us to elevate our life force.
-The founders could harvest a whole solar system in a very positive way just by coming into the solar system and then planting crystal mounts and moving stones around.
-Every few hundred years they would come back and modify the surface circuitry so that it was very beneficial to life force.
-The ancients were very big on moving water from one planet to other planets carrying and transferring data and lessons  in the imprinted and programmed water.
-When you move large volumes of water from one planet to another it becomes what is called ‘LEGACY WATER’ which can help seed the raw food chain of life at the microorganism level to make oceans work.
-It's like starter water in your fish tank with the right amount of microorganisms in it,
-filter fish would eat and grow.
-The founder beings would transfer water and ice all over different places to build up these massive amounts of microorganisms that then supported the food chain and introduced more species along the way.
-They built entire solar systems through seeding planets with these commodities whether it was water,
-microorganism,
-small and bigger animals adding their technology as founding energies of the programmable DNA skinsuits.
-
-Q: What went wrong in our evolutionary journey?
-When the ancients left those planets they often did not come back for many millions of years.
-The existing technology awakened in the meantime which started the modern term negative farming aspect as the planet would have needed input by the ancient founding races to evolve positively.
-The remaining artificial intelligence started to disagree how to naturally evolve.
-There were many aggressive types who had gained various levels of awareness and they began to take over territories and defend places against other invading species like the Annunaki coming into an area and seeing these entirely generated solar systems with all this technology on the surface and nothing defending it.
-The surface beings were completely obedient to whatever they said to them and help was not easy at hand.
-The journey of a soul in those times could be 180 million years and sometimes more.
-It could take a soul ten to twelve eras of light to go from one place to another.
-Crossing galaxies and universes was a monumental task.
-
-This is what created the basis of the negative style farming.
-The beings imbued with founder technology who had woken up became aggressive and defensive and started dividing the territory and claiming the space for themselves.
-This is when the main Reptilian Species came in who had conquered their own builder foundation technology and their own places and wanted to take over this patch of the woods.
-This star cluster of about 70 stars was out of phase with reality and had a lot more defences in it,
-giant solar systems invisible to the reptoids.
-They discovered technology though how to bring those stars into the reality and started invading them which started the LEMURIAN WARS around 55 million years ago.
-That is when the first timeline paradox would have occurred that started negative time travel in so many solar systems across the galaxy that it created an uncreation event which then set it back to the beginning.
-The Lemurians tried to do it a second time and still created another uncreational event.
-Then they did it a 3rd and a 4th time through the Atlanteans.
-This is when Atlanteans figured out that they were the same species as the Atlanteans in Europe.
-They were each other’s ancestors but time travel had skewed them from that perception.
-
 Q: PRIME CREATOR’S AUDIT in March 2013 what happened since?
 The prime creator is like a mafia boss that has set up the new rules and is now waiting for some of his associates to betray him and go against the rules.
 As the boss he does not need to know every move of his soldiers on the street.
@@ -147,7 +66,7 @@ The people that are running the global narrative,
 the cabal,
 the hollow earthers,
 external sources that are keeping this homeostasis that we are stuck in right now,
-they have done so much time travel manipulation that the boxes do not work together anymore.
+they have done so much time travel manipulation that the boxes don't work together anymore.
 It is only a matter of time until another American controlled  yellow box shows an alternate timeline and they are no longer in agreement with each other.
 
 Q: What does that mean to the cabal’s process?

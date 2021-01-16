@@ -250,7 +250,7 @@ You believe as much already if you follow a prophetic religion.
 The prophets tell of a a story already written.
 
 
-Do not diminish your position as a living and sentient being.
+Don't diminish your position as a living and sentient being.
 You are creating within this world.
 Your free will choices unfold the story.
 As the story unfolds,
@@ -407,7 +407,7 @@ An unentangled observer can observe the quantum field without having an effect o
 It happens all the time.
 Observers are born into human form,
 sent into this world to create a record of it they then take back to where they came from.
-They do not interfere with the unfoldment of circumstance here.
+They don't interfere with the unfoldment of circumstance here.
 If they did,
 they would be entangled.
 There are numerous observers and collectives of observers that we might call off-world,
@@ -746,7 +746,7 @@ The motor cortex functions were assigned an earlier ending date than the actual 
 Many of us could live two to three hundred years if we had proper trauma resolution so as not to burn out the neurological pathways.
 Optimal gut health is a remedy to avoid the plaque build up which causes dementia.
 It is all about the volume of individuals who are part of the ocean of awareness choosing to experience a law as a fundamental value of experience from one era of light to the next.
-Unentangled observers do not have to abide by universal laws.
+Unentangled observers don't have to abide by universal laws.
 That is the whole point of entering that state of neutral observation.
 
 Universal laws come down to egg and sperm technology or other birthing processes that generate lineages differently.

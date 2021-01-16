@@ -81,7 +81,7 @@ Ecclesiastes 1:4
 
 
 
-We do not teach DNA lineage on the planet anymore.
+We don't teach DNA lineage on the planet anymore.
 We are looking at DNA through the lens of the fourth industrial revolution.
 How can we hack it,
 spike it,
