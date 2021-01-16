@@ -6,8 +6,8 @@
 We live on a seventh dimensional seed planet.
 Earth can teleport itself through time and space seed worlds.
 These worlds are a blank sheet.
-They have no Akashic record.
-The life force seeded by earth allows the new world to start growing with its own Akashic record.
+They have no akashic record.
+The life force seeded by earth allows the new world to start growing with its own akashic record.
 
 When we reconnect with source,
 we become celestial mediums of peace.

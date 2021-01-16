@@ -33,7 +33,7 @@ the need to know,
 to prove to yourself once and for all the soul is an immortal part of the prime creator,
 as a drop of water is a part of the sea,
 and the sea flows out into the ocean of awareness.
-We have access to the Akashic  records at our disposal.
+We have access to the akashic  records at our disposal.
 This is the true reference library for all events,
 past and future.
 There are no gatekeepers.

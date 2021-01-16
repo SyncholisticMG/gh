@@ -4,13 +4,13 @@ Glossary of Terms
 ===============================
 
 
-## Akashic record
+## akashic record
 
 
 It is the cellular memory of our earth,there is a crust on our earth that is below the earth layer that is granite,granite is 65-75% crystalline,that structure in its own concept is a data storage unit as well as an interactive co-creative,spiritual,physical intra-exchange device of history,anything that has psychic record is recorded in the akashic record.
 
 
-Akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body DNA.
+akashic records are a marker stone-a compass guide to truth in a society where truth is not well respected,akashic record is a process to connect to your past,present and future lives so you can determine what layers of soul contracts you have with the planet,your soul group,your soul family,other star brothers and sisters,it’s a way to gauge personal direction to accomplishing a complete living life...The AR are a recording of every beings experience in every lifetime they’ve had on this planet,when you leave this planet and say I’m done with this experience here the planet gives you its neutral perspective so there is no polarity revealed in it of what it witnessed through your eyes as part of a shared reality experience which is downloaded into your light body DNA.
 
 
 The AR is a recording of every single sentient experience in this world through the neutral perspective of the planet that’s holding space for free willed life.
@@ -408,10 +408,10 @@ You have infinite love and co-creating within you, but, at this moment, you must
 By making that sovereign choice to be the disentangled observer of the self means you get the fullest versions of yourself in the here in and the now. You are the apex of your own hierarchical order. Say that in your mental heart space. "I am the apex of my own hierarchical order, and no other hierarchical system has control and domination within me."
 
 
-Unentangled observer of the Akashic Record
+Unentangled observer of the akashic Record
 
 
-The unentangled observer is part of the Akashic Record – they are a stream of the AR that can only be perceived in the sovereign neutral perspective. They are reaching the highest point of neutral observation even if they are observing themselves.
+The unentangled observer is part of the akashic Record – they are a stream of the AR that can only be perceived in the sovereign neutral perspective. They are reaching the highest point of neutral observation even if they are observing themselves.
 
 
  **Objects of influence
@@ -1062,10 +1062,10 @@ CLOUD TECHNOLOGY – SOME ARE SOLID AND YOU CAN WALK ON THEM
 - Clouds that are man made entirely, not AI, they are programmed water with programmed sentients, we commonly call themselves. They can be guard dogs, transportation vessels hide in those,
 
 
-UNENTANGLED OBSERVER of the Akashic Record
+UNENTANGLED OBSERVER of the akashic Record
 
 
-The unentangled observer is part of the Akashic Record – they are a stream of the AR that can only be perceived in the sovereign neutral perspective. They are reaching the highest point of neutral observation even if they are observing themselves.
+The unentangled observer is part of the akashic Record – they are a stream of the AR that can only be perceived in the sovereign neutral perspective. They are reaching the highest point of neutral observation even if they are observing themselves.
 
 
 - Find out the real history of the past without other’s interpretations

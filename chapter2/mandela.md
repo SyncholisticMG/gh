@@ -50,7 +50,7 @@ even if it has been erased,
 there is an opportunity,
 a portal back to the hub of interconnectivity.
 It can be perceived as the trans-galactic exchange system between eras of light.
-Those forgotten selves will integrate with your precognitive and postcognitive workforce and no longer be forgotten but remembered and added to our Akashic record.
+Those forgotten selves will integrate with your precognitive and postcognitive workforce and no longer be forgotten but remembered and added to our akashic record.
 They have not been part of your AR being in forgotten space.
 
 .. AR being??

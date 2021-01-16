@@ -31,7 +31,7 @@ it has many unseen languages behind it,
 defining it more by making the dream-space tangible here and now.
 It's that journey.
 Make everything real now.
-Open up the Akashic records,
+Open up the akashic records,
 here and now,
 in this moment.
 Then it can be crystallized into our greater form of growth.
