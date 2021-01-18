@@ -150,7 +150,7 @@ This is a biological imperative directing us to grow. Choosing the
 spiritual joy through this biological imperative is the essence of our
 essence, being one with it as part of us,...as a programmable DNA
 instruments of awareness, as part of our choice based system of belief,
-interwoven with the fabric of time space reality.
+interwoven with the fabric of time-space reality.
 
 &gt;&gt;&gt;
 

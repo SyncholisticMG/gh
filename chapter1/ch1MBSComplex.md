@@ -615,7 +615,7 @@ as all things related to genetics are.
 They left their home worlds and entered the void between galaxies and universes and became the *stalkers of the void*.
 Out there,
 at the edges of nothingness,
-no longer attached to any time space localities,
+no longer attached to any time-space localities,
 they could send back the remains of their consciousness to observe their home worlds through many points of view.
 They collected DNA memories and data of observation then returned from the void space.
 As they advanced in this process,

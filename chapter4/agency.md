@@ -90,9 +90,9 @@ courage,
 and determination.
 We must continue the work of self-mastery without the neediness of instant gratification and external validation.
 
-Agencies can work in multiple time space equations.
+Agencies can work in multiple time-space equations.
 Agents inside the agency are certified to work in time and no time.
-Some agents work with other non-certified agents of other time space equations for the purpose of forcing a match no matter how minute it is.
+Some agents work with other non-certified agents of other time-space equations for the purpose of forcing a match no matter how minute it is.
 Agents and the agency are separate entities.
 Think of them as independent contractors who are contracted by an agency to do the work.
 Some agents are full time employees and some are outsourced contractors,
@@ -118,3 +118,76 @@ Higher quality agencies have higher standards of match making.
 The agency is here to help you write a contract on the fly.
 That is best resolution for all sides.
 Low level agencies look for lower levels of resolution to get their quota.
+
+
+
+The vagus nerve is the universe in realized potential.
+The *I am* must learn to drive the vagus nerve like a race car driver.
+The Schumann resonance is the speed limit sign or no speed limit sign.
+The agencies like to give us speeding tickets without authority to slow us down.
+There are construction zones where the *I am* sets up a building phase and at times the *I am* creates a rebel who screws up the plans.
+This is when traumas take over life planning.
+The fetus gets shut out of this part and tries to get itself back into trust with the *I am*.
+These are the blame,
+shame,
+guilt,
+fear agents that exponentially get worse with age.
+Faith is a key component to understanding the levels of separation.
+Loss of faith and trust is loss of control of the vagus nerve.
+Once we lose control of the vagus nerve we are in a self-made crisis ruled by hesitation and doubt.
+When there is no coherence between mind-heart-spirit,
+there cannot be a resonance to the seen and unseen world that is trying to align synchronicities to us without us being paranoid about them.
+We start attracting low quality agencies and the Schumann resonance is there to determine how powerful and potent we can be throughout an era or slice of history.
+It is only the agencies or self-created internal programs that put out the speed limit signs.
+The highway goes in every direction but we still have to guide ourselves with confidence from point A to point B,
+which is resolution of conscious awareness at the level of responsibility as an *I am* of someone who is fully realized in the vagus nerve on the super highway of the self.
+The speed limits can be seen as programs that need to be taken out or considered as data and input to learn and evolve.
+Conspiracy theory is an example of speed limits to slow us down.
+The system of domination and control is a low level agency.
+Agencies have different levels of practices and standards.
+
+Let’s say we want to go into spirituality and not do the nine to five work life.
+We deliberately put in a constructions zone to limit the speed of any programs that may want to take us off that path.
+It is how the *I am* sets up discipline of the self.
+In the eastern spiritual paths they say our lives are written before we are born.
+It's true.
+They are *outlined*.
+Our free will decisions inform the outcome of the blueprint.
+In classical Greek thought we have the notion of fate and destiny,
+a reiteration of the eastern adage of the life outlined before birth.
+When you look around it's everywhere.
+Our journey to self-illuminated master means we can’t let our programs influence us to make hasty choices that don’t work in our long term favor.
+Programs bring up a subject matter.
+They have charge and polarity behind them.
+When we give into them the program in the vagus nerve is running us and not the *I am*.
+The pre-planned construction zones are all about frequency,
+vibration,
+and harmony.
+They aren't necessarily a bad thing.
+They're here to help you on the path.
+There are deconstructions zones where a person has had lifelong trauma and needs to stop the traffic,
+completely tear up the roads,
+and create a detour so that there is only one new neural pathway from which to choose.
+
+Agencies will look for how present you really are so they can match us with a being of similar resonance to our time-space equation.
+This is what we can call time syncing.
+Once you are in time sync with an agency it can contract for you
+&mdash;
+people,
+places,
+things,
+objects,
+art pieces,
+anything that can create an experience which manifests a memory with lasting expressions.
+Astrology has a big part in how the agencies can work with us.
+It builds on what sticks in light memory or trauma memory and from there a blueprint is formed.
+The system of domination looks to predict us the same way and tries to get us to work with its corrupt agency.
+
+
+A spiritual strategy is an agenda in your time-space equation so that things can naturally time sync with you and you are not forcing them.
+Often people can’t find their perfect mate because they are trying to force matches.
+It’s a pure energetic thing that does not have a cognitive function behind it.
+The purpose of the *I am* is to cognizize things in a time-space vocation,
+to have access to its vagus nerve,
+equal to its level of awareness so a series of experiences can transcend chemical memories.
+Those chemical memories become powerful light memories that allow us to remember things about us during the great awakening that is part of ascension into higher states of being while still present in this world that has all these incoherent factors to them.

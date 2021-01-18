@@ -127,7 +127,7 @@ confidential.
 
 The more card questions the player answers correctly, the more often he
 can spin the YB and tap into the DNA wisdom, without limit. It is simple
-and effective and as it all happens in no-time space the opportunities
+and effective and as it all happens in no-time-space the opportunities
 for clarity are only restricted to the questions the players ask.
 
 Using the YB technology to read our DNA data stream can be most

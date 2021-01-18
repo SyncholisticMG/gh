@@ -1,79 +1,9 @@
 
-## Vagus Nerve
 
 
-The vagus nerve is the universe in realized potential.
-The *I am* must learn to drive the vagus nerve like a race car driver.
-The Schumann resonance is the speed limit sign or no speed limit sign.
-The agencies like to give us speeding tickets without authority to slow us down.
-There are construction zones where the *I am* sets up a building phase and at times the *I am* creates a rebel who screws up the plans.
-This is when traumas take over life planning.
-The fetus gets shut out of this part and tries to get itself back into trust with the *I am*.
-These are the blame,
-shame,
-guilt,
-fear agents that exponentially get worse with age.
-Faith is a key component to understanding the levels of separation.
-Loss of faith and trust is loss of control of the vagus nerve.
-Once we lose control of the vagus nerve we are in a self-made crisis ruled by hesitation and doubt.
-When there is no coherence between mind-heart-spirit,
-there cannot be a resonance to the seen and unseen world that is trying to align synchronicities to us without us being paranoid of them.
-We start attracting low quality agencies and the Schumann resonance is there to determine how powerful and potent we can be throughout an era or slice of history.
-It is only the agencies or self-created internal programs that put on the speed limit signs.
-The highway goes in every direction but we still have to guide ourselves with confidence from point A to point B which is resolution of conscious awareness at the level of responsibility as an *I am* of someone who is fully realized in the vagus nerve on the super highway of the self.
-The speed limits can be seen as programs that need to be taken out or considered as data and input to learn and evolve.
-A lot of the conspiracy theory world are speed limits to slow you down.
-The system of domination and control is a low level agency.
-Agencies have all different levels of practices and standards.
-
-Q: What are speed limits or construction sites in this metaphor of the vagus nerve?
-Let’s say we want to go into spirituality and not do the 9-5 job journey so we put in a deliberate constructions zone to limit the speed of any programs that may want to take you off that path.
-It is how the *I am* sets up discipline of the self.
-Your journey to become a self-illuminated master means that we can’t let your programs influence you making hasty choices that don’t work in our long term favour.
-Programs bring up a subject matter,
-they have charge and polarity behind it and as soon as we give into it,
-the program in the vagus nerve is running you and not the *I am*.
-Constructions zones are all about frequency,
-vibration and harmony.
-They are not necessarily a bad thing but here to help you on the path.
-There are deconstructions zones,
-where a person has had life long trauma and needs to stop the traffic,
-completely tear up the roads and create a detour so that there is only one new neural pathway to choose from.
-
-Q: What do you mean by TIME SYNCHING with regards to agencies?
-Agencies will look for how present you really are so they can match you with a being of similar resonance to your time space equation.
-This is what I call time synching.
-Once you are in time sync with an agency it can contract for you.
-People,
-places,
-things,
-objects,
-art pieces,
-synchronicities anything that can create an experience that manifests a memory with lasting expressions.
-Astrology has a big part in how the agencies can work with one.
-It builds on what sticks in light memory or trauma memory and from there a blueprint is formed.
-The system of domination looks to predict us the same way and tries to get us to work with its corrupt agency.
-Thus why so many unprotected technologies are dangerous to the IAM growth because they can time synch with you as if they are a  high quality agency when in reality they are scammers.
-
-Q: What is a spiritual strategy?
-A spiritual strategy is an agenda in your time space equation so that things can naturally time synch with you and you are not forcing them.
-Often people can’t find their perfect mate because they are trying to force matches.
-It’s a pure energetic thing that does not have a cognitive function behind it.
-The *I am*’s  purpose is to cognitise things in a time space vocation,
-to have access to its vagus nerve,
-equal to its level of awareness so a series of experiences can transcend chemical memories.
-Those chemical memories become powerful light memories that allow us to remember things about us during the great awakening that is part of ascension into higher states of beingness whilst still present in this world that has all these incoherent factors to them.
-What are incoherent factors?
-The political voting system,
-rules and laws of banking,
-government,
-media.
-All those things that are trying to force a match in a false reality through unprotected technology.
-
-Q: What is the Schumann resonance?
 The Schumann resonance is background frequency of electromagnetics that is effected by solar winds and radiation,
 the actual magnetics of the planet.
-It represents an opportunity where consciousness can rapidly expand.
+It represents an opportunity for consciousness to rapidly expand.
 If you feel that you respond to the spikes it might say to you that you have all this electromagnetic thinking juice and you are not doing anything with it.
 The Schumann resonance is not one number.
 It is many,

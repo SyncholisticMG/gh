@@ -43,7 +43,7 @@ This is not a walk in experience.
 Walk ins are extremely rare and often get misidentified with NDEs.
 
 
-NDE experiences take us out of time space equations because we move into the ocean of awareness then back to our life.
+NDE experiences take us out of time-space equations because we move into the ocean of awareness then back to our life.
 Once we lose connection to the organs it's just the vagus nerve and the spinal column reporting data the body has gone through.
 We are disconnected from the hologram because we are no longer supported by the aura.
 You can’t maintain the internal energy flow.

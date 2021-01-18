@@ -5,7 +5,7 @@
 Time is irreversible.
 There's is no linearity to it.
 Energy is indestructible.
-Every moment within a time space equation creates an energetic imprint that cannot be erased.
+Every moment within a time-space equation creates an energetic imprint that cannot be erased.
 No two physical objects occupy space simultaneously.
 There is no simultaneous or identical history as they follow a unique light path.
 We are a standing sine wave of existence as the *I am* apex in embodiment now,
