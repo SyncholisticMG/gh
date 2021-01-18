@@ -1,4 +1,4 @@
-## The I am Individuation Process
+## The I Am Individuation Process
 
 
 
