@@ -1,34 +1,34 @@
+## Schumann Resonance
 
-
-
-The Schumann resonance is background frequency of electromagnetics that is effected by solar winds and radiation,
+The Schumann resonance is the background frequency of electromagnetics that is effected by solar winds and radiation,
 the actual magnetics of the planet.
 It represents an opportunity for consciousness to rapidly expand.
 If you feel that you respond to the spikes it might say to you that you have all this electromagnetic thinking juice and you are not doing anything with it.
 The Schumann resonance is not one number.
-It is many,
+It's many,
 like a team dance combination.
 There is no one common shared Schumann resonance around the world.
 All of them make up the orchestra of consciousness.
-Sometimes you have many orchestras playing different interpretations of the classics and at times other playing remixes.
 Mountains,
 lakes,
-deserts and rivers alter the Schumann resonance as well as the seen and unseen life in those areas.
-Think of the Schumann resonance as the key musicians playing.
-Through consciousness you are quantumly entangling with the Schumann resonance.
-Working with our *I am* agencies is a choice in awareness or unawareness or both.
-The Schumann resonance determines the veracity of interaction or speed signs and at times has nothing to do with Schumann rates.
-It’s the key that allows things to act in synchronicity,
-false or real,
-so that best matching actions,
-seen and unseen,
-create powerful manifestations.
-The quality of the agency will determine the power level and the time of action in a key.
-Our modern light-worker community has bastardized the Schumann resonance into something that it is not.
-Idiots with youtube PHDs trying to hypnotize something into an absolute truth.
+deserts,
+and rivers alter the Schumann resonance.
+The seen and unseen life in those areas affects it.
+Think of the Schumann resonance as the key in which musicians play.
+Through consciousness we are quantumly entangling with the Schumann resonance.
+Working with our *I am* agencies is a choice in awareness,
+unawareness,
+or both.
+
+
+The Schumann resonance determines the veracity of interaction.
+It’s the key that allows things to act in synchronicity so that best matching actions create powerful manifestations.
+The quality of the agency determines the power level and the time of action in a key.
 The Schumann resonance is there to keep all living things seen and unseen on one celestial musical key.
-Free will allows us to explore many keys that can create resonance with the natural way of living or not.
-A dissonant state is the cacophony of chaos and chaos is its own universal key.
+Free will allows us to explore many keys.
+We can create resonance with the natural way of living or we can create dissonance.
+A dissonant state is the cacophony of chaos,
+which is its own universal key.
 
 Q: What is the difference between Consciousness entanglement and a program?
 A program may or may not be consciously entangled.
