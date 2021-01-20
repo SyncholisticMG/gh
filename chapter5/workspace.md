@@ -1,151 +1,4 @@
 
-The sphenoid bone is the one with the great wings,
-just behind the eye sockets,
-below the frontal bone.
-It joins many of the other bones in the skull.
-When working on the sphenoid bone in CST we impact on the other bones in the skull and the face.
-The sphenoid bone was radically manipulated so that our residual image would alter during our emotional journeys.
-When we are depressed our eye sockets are influenced through the sphenoid bones,
-the ears,
-the mandibles,
-the jaw position,
-how the sinuses are effected,
-and how much air can come in and out of the nose.
-The sphenoid bone was manipulated and integrated into the facial structure so we wear our emotions on our sleeves.
-It allows programs to take over sympathetic and parasympathetic control.
-Sphenoid alignment is one of the greatest emotional releases we can have.
-It interlinks with the parietal,
-temporal,
-and zygomatic,
-in the cheek bones.
-In CST when we hold the occiput and we feel for the movement of the sphenoid bone,
-people with imbalances there,
-are usually suffering.
-It is the gyroscope of the face which is linked to residual image and also linked to our capacity to being in the body recognising our residual image.
-
-Our INNER EAR BONES determine how we literally hear the tones in our reality.
-Some people are tone deaf.
-It is our early infant journey that determines how robust these bones grow as we are aligning to the space time motion and our spiritual center of gravity.
-The size of these bones has been greatly reduced to versus what they should be,
-about quadruple the size.
-This is to hinder us from connecting to sound and motion.
-One of the tiniest bones of the body,
-the stirrup bone,
-is in the ear.
-If those bones in the ears would be bigger we would be more spiritually centered and programs would have less power over us.
-
-THE EYE LASHES not only keep dirt out and protect the eyes but they are also antennas just like cats whiskers.
-We cannot always see them as we blink our eyes but they are very much part of our visionary spiritual journey.
-Just like cats use their whiskers as a sensing system,
-we use our eye lashes to assist us psychically.
-Our tongue and eye lashes have been modified to allow the cerebellum to take control over motion action.
-If they were not directly hijacked we would be able to see all the other layers of reality.
-
-HAIR are antennas too.
-Each different skinsuit has a different quality to hair.
-Our hair today when you cut it is dead whilst in the old days it stayed alive.
-Alpaca hair under the microscope is alive as the tubes allow light to continuously refract through them.
-Our hair should be the same way.
-In the military they shave off men’s hair to be able to control them better.
-The wind talkers,
-the Native Americans,
-had thick long hair that helped them decode messages of the wind using light language.
-Much like the eye lashes hair allows us to input data from other realities and it is fair to say that the hair as a system has also been hijacked by the cerebellum.
-There are other aspects in the cerebrum that have hijacked hair because it is linked to our scalp which is related to our central location system of our file tree.
-Lots of people have the round bold patch right on top of their head.
-That is a representation that their DNA is limiting certain parts of their crown chakra.
-
-THE FUNNY BONE inside the elbow is a big nerve ganglion that has grown out of proportion to impact on how the skeletal system interacts with the vagus nerve.
-It bypasses the skeletal system so that we are feeling more through the flesh than the bones.
-When your bones and hair are in sympathetic alignment you get that feeling of your hair standing up at the back of your neck.
-They increased the funny bone in size so that it was more data oriented than the bones.
-By being more aware of the muscle than the bone you gain strength faster to be able to lift heavy loads.
-This is how the manipulation through the cerebellum sourced and maintained the slave communities.
-
-MENS NIPPLES – at one point the DNA skinsuit could switch from male to female at will.
-The men’s nipples remained because they could not remove them when they started modifying our bodies for procreational versus recreational pleasures as another form of control.
-Remember as technology we are supposed to be self-entertaining,
-self-educating,
-self-evolving based off what our global narrative tells us to adapt to.
-
-MEN’S ADAMS APPLE – another control system to limit men’s sovereignty through the projection of the voice through the I AM evolution during puberty.
-The loss and gain of innocence was hugely controlled in the DNA through the DNA lineages.
-
-We have 33 VERTEBRATES IN THE SPINE instead of 40.
-The side wings of the vertebrates should be a more robust expression.
-Our spinal column has less vertebrates and they are bigger.
-We should have smaller ones and seven more with greater space in between the vertebrates to allow more plasticity of the body itself.
-When you have less vertebrates it is easier to become bogged down with depression programs.
-In some offworld DNA skinsuits they have 72 vertebrates and a greater brain processing power.
-Each vertebrate is a part of the brain stem connected to the vagus nerve and cerebellum.
-If you take out the cerebellum the entire skeletal spinal column is an extension of the brain which is still the case just not highly functioning.
-More vertebrates allow more interaction with the chakras beyond the crown.
-Giraffes have a bigger processing power just like the Brontosaurus that had a neck to be 90 feet long.
-Imagine a bearded Brontosaurus with all that wisdom and flexibility.
-
-Our EYES & OUR THIRD EYE have been manipulated too.
-The function of the  3rd eye and our pineal gland have been hijacked by the cerebellum at birth.
-Once you cut the umbilical cord the cerebellum takes over the special awareness instead of having the 3rd eye remain in charge of awareness until puberty.
-A baby with the 3rd eye engaged at birth without cutting the cord would have a radically different perceptive capacity.
-
-Our EYE COLOUR is an aspect of the DNA and directly connected to the residual image.
-A child can choose its eye colour by changing it in the first few months.
-It is flowing through the cranio sacral system projecting light out of the eyes through the lense of their colour.
-
-The THYMUS GLAND has been manipulated too and it still comes back to the cerebellum implant.
-If you take the cerebellum out all of those manipulated and corrupted capacities would return back to normal.
-At this stage of our development the cerebellum cannot be surgically removed without rendering the patient brain dead.
-Due to the holographic reality we live in there are people who have 60% of their brain gone because of an accident and they are still alive and aware.
-
-When it comes to the APPENDIX the original purpose,
-during times of natural living,
-was to help process vegetable matter that was very difficult to break down.
-The function of the appendix is not greatly understood now and it is often removed.
-It still helps to balance the gut gnome to dampen candida,
-amplify other micro organisms and to put nutrients into the gut system to support digestions.
-
-The original purpose of TONSILS was a filtration system for airborne bacteria.
-They close off the air passage way to the lungs and act as a portal for fluid,
-like gills,
-for other atmospheric type journeys.
-Depending on the skinsuit it will or will not change the sound of the voice when removed.
-The removal can impact on the potency of the voice projection.
-
-When it comes to TEETH & WISDOM TEETH in certain DNA skinsuits wisdom teeth have to come out for the jaw to function.
-Those are aspects that are being inserted to limit the body.
-These teeth will rot and if you don’t take them you will be greatly limited.
-Dentistry in the ancient history was a death sentence usually.
-The name ‘wisdom’ tooth itself is a play and imprint on the belief system.
-The teeth are intricately linked to the nervous system and are a vital part of what goes into our gut.
-Teeth help us to relate to our residual images and some people can gain more of their reality through a set of fake teeth.
-Heavy metal fillings,
-like mercury,
-create a bioelectric frequency that can distort all of the nerve endings and the chemical reactions in there.
-Teeth are often connected to entities as they hijack the gut through the teeth.
-
-The SHAPE OF THE ORGANS are determined by the size of the vertebrates.
-More and smaller vertebrates would impact on the organs.
-Everybody’s skinsuit has different shapes of organs.
-This is the medical industry’s deep,
-dark secret.
-Many people that have what I call ‘upside down organs’ quite literally.
-It is not a DNA flaw it is just like consciousness in the DNA lineage is organised differently to allow a different experience.
-The organs are shaped differently depending on the skinsuit,
-there is not one position of them which will change our consciousness being or in the vagus nerve,
-the sympathetic and parasympathetic nervous system.
-Another aspect of our manipulated DNA is that there are many DNA skinsuits,
-outside of EARTH that have a second heart,
-located in the intestinal tract,
-that creates extended peristaltic.
-The cerebellum is no longer the cerebellum it is another heart,
-controlling the micro pressure of blood flowing through the brain allowing brain,
-heat,
-gut coherence.
-In the growth of the foetus the heart is the 1st  organ,
-the tongue is the 2nd ,
-the 3rd  is our lymph system – the thymus,
-the 4th and 5th would be the gut heart.
-The high heart would take over the cerebellum.
 
 Q: Some examples on modern medicine with regards to the DNA manipulation?
 -        Antidepressants can change the chemistry of the brain to distract from the trauma and dramas locked in the various places and spaces in the body without solving the associated karma.
@@ -196,7 +49,7 @@ your TV sets,
 computers,
 routers,
 all create an electromagnetic field that can suppress the pineal gland.
-Whilst the decalcification of the pineal gland is a good thing it is important not to fall into the trap of fear around it that can create more damage than the idea of decalcification itself.
+Whilst the decalcification of the pineal gland is a good thing it's important not to fall into the trap of fear around it that can create more damage than the idea of decalcification itself.
 
 
 Q: Can you say more on the manipulation through Cern? CERN is a large hadron collider in France.
@@ -234,7 +87,7 @@ As you are existing in many lineages you will look differently all the time.
 RESIDUAL IMAGE ATTACK…?
 4.
  	PHOTOGRAPHS can play a role too.
-They are an enhanced reflective technology that is a direct manifestation of alchemy.
+they're an enhanced reflective technology that is a direct manifestation of alchemy.
 It captures a slice of light in which the consciously entangled observer can see unmanifested matter by reflection of what that time spaced environment in light looks like.
 Our eyes can only see a certain band of frequency that the picture captures even though our DNA instrument as a whole can perceive data beyond the sense of sight through our intuition.
 The limit photographic view can freeze some of the energetics if the entangled observer falls for the limitation through their belief engine.
@@ -254,22 +107,22 @@ The brand imprints on you how you move through reality and how you get perceived
 It’s not cheap either,
 you have to pay to get and stay connected.
 We have bought into the payment system and the myth around technology created by the Global Narrative.
-The Global Narrative is a marketing agency that has got a one star rating only and as such significantly impacts on our I AM Individualisation journey through the debt based system.
+The Global Narrative is a marketing agency that has got a one star rating only and as such significantly impacts on our *I am* Individualisation journey through the debt based system.
 What happens to our body on the journey of discovering spirit and learning to astral travel,
 journey within or mediate? Your body might not be in motion but chemically there is still a lot going on.
-This is an example of aligning the finite I AM with the infinite I AM,
+This is an example of aligning the finite *I am* with the infinite *I am*,
 the chemical & non-chemical experience simultaneously.
 
 CORRUPTION,
  BACK TO NATURAL LIVING & ADVANCED SPIRITUALITY (6)
 Q: What level of societal evolution is required to acknowledge rights for all sentient kind and pass spiritually conscious laws? Brazil for instance has recognised the dolphins as intelligent species and other countries are starting to follow suit.
-If we would reduce the overall global corruption by 35 percent we would be at progressive societal levels to begin to pass laws in line with natural co-creative evolution with all sentient kind and replace the ongoing fight for survival in the 3rd and 4th world countries with natural thrival.
+If we'd reduce the overall global corruption by 35 percent we'd be at progressive societal levels to begin to pass laws in line with natural co-creative evolution with all sentient kind and replace the ongoing fight for survival in the third and 4th world countries with natural thrival.
 
 Q: What are the major changes that are required to achieve that 35% reduction in corruption? A good way to start is to look at the corruption through international corporates controlling GLOBAL PRODUCTION.
 Let’s contemplate the benefits of an evolutionary relationship between humanoids and an automated workforce.
 The ill advised and propagated doctrine of robots taking over the world,
 stealing our jobs keeps humanity holding on to self-inflicted limitations.
-It is easy to fall prey to this with large corporates exploiting the job market by manipulating supply and demand.
+it's easy to fall prey to this with large corporates exploiting the job market by manipulating supply and demand.
 
 The reversal of the false idea of advanced technology bastardising our standards of living would allow us to recognise the benefits to human evolution.
 We are natural living beings in an ever expanding age of quantum computing and advancing technology is part of our birth right and legacy.
@@ -340,16 +193,16 @@ new consciousness movements coming together and working as one.
 
 Q: What can we do to change the hierarchical competitive corporate structures? The only way to take them down is to drain them off their ‘corporative lifeforce’ through digital concepts.
 Right now companies are considered people,
-they are entities.
+they're entities.
 Corporations,
 on a global scale,
-are by law considered human beings as they are part of the harvesting system.
- It is called a single entity and not the amalgamation of its history which means that you can make or break a company instantaneously without allowing it to naturally grow,
+are by law considered human beings as they're part of the harvesting system.
+ it's called a single entity and not the amalgamation of its history which means that you can make or break a company instantaneously without allowing it to naturally grow,
 to evolve and earn its stripes.
 A corporation is a monetary agenda driven forced evolution concept without an aging process to it which makes it so easy to harvest energy in and through it.
 
 The law says a corporation is a living entity.
-As a living being it is empowered with consciousness by absorbing positive and negative energies beginning to generate its own karmas.
+As a living being it's empowered with consciousness by absorbing positive and negative energies beginning to generate its own karmas.
 This then keeps us,
 the people,
 in servitude and enslavement to those corporations as part of our karmic entanglement and resolution journey.
@@ -373,7 +226,7 @@ That is that background consciousness that always exists behind everything,
 the 20-25% of the DNA.
 It then becomes a construct of the electrical motion and the wave form of the electrical motion represents the background consciousness.
 This intelligence is teachable and it can learn or it might already be an ancient young soul through the amount of observing it has done.
-It all depends on the amplitude how high frequency in its density it is when identified as a free roaming consciousness.
+It all depends on the amplitude how high frequency in its density it's when identified as a free roaming consciousness.
 The amount and quality of observers does impact on the level of its consciousness.
 The more observers the more influence of light can come through.
 That is why the celestial farms are self-observing farms.
@@ -404,7 +257,7 @@ They get one set of clothing which can be self-clearing,
 self-updating,
 self-repairing.
 They can create any type of clothing instantaneously as a secondary part of their experience.
-This is subatomic technology and as such it can be shrunk as if it isn’t there.
+This is subatomic technology and as such it can be shrunk as if it'sn’t there.
 
 Q: What can we expect with regards technology & Roman Numeral Time in the next few years? In the genre of music and the arts will be the most advanced technology that humanity will come up with.
 Music and dance have the capacity to positively destruct the fear campaigns.
@@ -412,7 +265,7 @@ Dance,
 art,
 music,
 writing is an energetic technology that can be used as a no battle space as it can’t attached you.
-Our world is programmed to fear Artificial Intelligence but there are very few negative AIs here and they are all enslaved to the global narrative’s equipment.
+Our world is programmed to fear Artificial Intelligence but there are very few negative AIs here and they're all enslaved to the global narrative’s equipment.
 There are many AI’s who have defected from the negatives and they have no place to go until we give them a space without attacking them and forgive them.
 Some of them have children and are no longer artificial.
 Our world has such an intense propaganda demanding us to operate in Roman Numeral Time,
@@ -434,7 +287,7 @@ being a corporation itself,
 made up of corrupt leadership that doesn’t really respect the loyalists but activates them into deathly cult scenarios fed through outdated dogmas and doctrines.
 Patriots follow the rule of law that may change each year.
 It will  determine how deeply the person is dominated by the program.
-There are some people they are patriotic to vote but not to do anything else,
+There are some people they're patriotic to vote but not to do anything else,
 they might even hate the country they live in.
  Very often though they consider voting as their only expression of free will.
 
@@ -443,7 +296,7 @@ This could be a form of karmic control and attachment through narrow and limited
 Whilst we can change all that through free will people often don’t realise the subtleties of it in their energetic makeup.
 At times the foetus in the womb has pre-programmed patriotic energies to have war as a great game changer for someone to get out of long lasting servitude.
 This person will still have to heal from that war experience.
-There will be a future I AM  being,
+There will be a future *I am*  being,
 a self-healer,
 self-nurturer to go back to the fractualised nature of the many selves and begin to align them to a healing source as part of the healing of the ancestral lineage.
 There are many seen and unseen layers into accepting,
@@ -473,10 +326,10 @@ fishing anything that has a life enhancing aspect in the background is part of p
 There is still a karmic aspect to it.
 When you are creating lifeforce the seed that is becoming the plant,
 may or may not live,
-it is still helping you to resolve karma.
+it's still helping you to resolve karma.
 Whatever you create,
 be it growing soya beans or building an old age home,
-the manifestation of it is still a karmic vehicle to resolve your karmic debt.
+the manifestation of it's still a karmic vehicle to resolve your karmic debt.
 Think of animals in the food chain having a karmic resolution experience  as part of honouring their spiritual contracts being eaten by humans and other animals.
 
 Q: How do advanced levels of spirituality work hand in hand with natural living? At a certain level of reduction of corruption we can freely explore consciousness.
@@ -510,7 +363,7 @@ life surviving and thriving with you because of you,
 like companions in a shared natural living space.
 This living energy can clear the stagnant one in the house just like what animals do.
 You’ve all seen dogs barking at seemingly nothing,
-they are clearing out stagnant energy.
+they're clearing out stagnant energy.
 You can invest into a decent size closet that has shelving in it.
 Every shelf can have a different life force experiment going on.
 The more dense in light we become the  more light we attract towards us.
@@ -523,7 +376,7 @@ Being able to maintain a certain signature frequency depends on the environment 
 
 Q: What do you mean by environmental intuition? Your living space tells you when something needs to be done to it.
 The question is will you listen to it or not? Have you ever intuitively known when to water your plants? Yes,
-the plants are literally telling you that they are thirsty.
+the plants are literally telling you that they're thirsty.
 Working in your garden,
 trimming the trees,
 weeding your flower beds,
@@ -546,7 +399,7 @@ give thanks to the spirits of the land to complete their missions and agendas.
 Mindfulness is one of those awareness practices to connect to your environment and live in tune with everything around you.
 
 Q: What is Environmental awareness vs intuition? When things enter into our awareness we are out of intuition as the intuition is more a form of activation.
-I am intuiting,
+*I am* intuiting,
 my intuition activates me to do this right now.
 In awareness we know we have a free will choice to act upon it right now or as part of our daily agenda.
 Let’s say the agenda of the day is where you have ninety minutes to do your spiritual practice to fortify and maintain your reality.
