@@ -1,120 +1,6 @@
+## Natural Living
 
 
-Q: Some examples on modern medicine with regards to the DNA manipulation?
--        Antidepressants can change the chemistry of the brain to distract from the trauma and dramas locked in the various places and spaces in the body without solving the associated karma.
-
--        Take the contraceptive pill as another example? It gets prescribed to young women to help balance out the flow of menstrual blood and assist mood swings.
-Women often build up immunity to it and need to experiment with different ones.
-This can be emotionally stressful and physically as well as it can affect aspects of their sexual experience which prevents a lot of women from having true orgasms.
-
--        Cannabis can stop muscle pain without going on opioids.
-Unfortunately in most countries cannabis are still illegal.
-Lots of people are paranoid not wanting to take them for patriotic reasons or don't understand the medicinal value versus recreational drug abuse.
- .
-
--        Blood Pressure Medication is being handed it out generously and can create dependencies and can lead to strokes.
-
--        Statin drugs are said to increase risk of new-onset diabetes in patients.
-Any diabetic who wants to heal needs to control their food and sugar consumption as well as have more awareness of what their body & soul requires.
-They often have alcohol addiction in their ancestral lineage over many lifetimes dating back to poisonous water resources where people drank alcohol instead.
-Their food was inadequate and they led a very acidic life in the old days.
-The lineage may have a propensity to create diabetes as a DNA flaw to claim back health and resolve that ancestral karma.
-There can also be biological ancestral DNA flaws as a result of inbreeding.
-Diabetes has been around for thousands of years.
-In the old days people just went into a coma and died and they called that an early natural death.
-
--        Allergies are caused by DNA flaws mostly produced form early plastics and petroleum products that were truly poisonous to the users and through landfills.
-In the early industrial age chimneys produced toxic emissions all the way back to 300 years ago,
-when producing smelting canons.
-These flaws inevitably created over long term were incorporated into the plans of the system of domination and control.
-They had a prediction on what it would create to get people out of their ancestral homes into cities.
-
-
-Q: What do you mean when you talk about Technology? When I use the word technology I am talking about anything  that creates a forced versus a natural evolution be that now within or outside of the DNA.
-When it comes to technology there is always the fear factor of the technology itself that can be counterproductive to any use and integration.
-Technology is vitally important for us as an ever evolving species.
-Take chemtrails as an example.
-On the one hand chemtrails got weaponised through creating fear in the population.
-On the other hand the exposure can be seen as tool for people to wake up and become more aware of what is going on and how we are being manipulated through the system of domination & control.
-From an akashic Records view CHEMTRAILS can block out galactic energies that are coming in.
-Combine that with fluoride and all the other additives in our food consumption it can limit our ability to maintain and raise to higher levels of consciousness.
-
-
-Q: What role does the Pineal Gland play and how does it get manipulated? Our environment interacts with the DNA instruments through the pineal gland.
-Fluorides create a crystalline structure in the fluid sac of the pineal gland.
-The purpose of this crystalline structure is to take scalar wave information from etheric satellites to influence your local dreamtime in the sacred geometry cities.
-Transformers on the light poles along the streets can create an omnidirectional field that interacts with the crystals in your pineal gland to keep you trapped and not get into global dreamtime.
-The plugs in your room,
-your TV sets,
-computers,
-routers,
-all create an electromagnetic field that can suppress the pineal gland.
-Whilst the decalcification of the pineal gland is a good thing it's important not to fall into the trap of fear around it that can create more damage than the idea of decalcification itself.
-
-
-Q: Can you say more on the manipulation through Cern? CERN is a large hadron collider in France.
-The Council of Twelve,
-used Cern to “fudge the numbers” of the audit by the Prime Creator in March 2013 and it had other functions too.
-The idea was to use it as a teleportation device.
-If the consciousness would raise to a level of where domination loses control over humanity they would teleport Earth back into a denser part in the Solar System and get the people to dream themselves back into unawareness.
-Remember,
-we are manifesting,
-co-creating beings on the graduation timeline.
-All other planets are intricately linked into that graduating timeline and all other spirits in that timeline can literally impact on our awakening.
-
-Q: What are some examples of that energy harvesting technology you speak of?
-1.
- 	Influence of shoes as a technology in time & space disconnecting us from the benefits of the earth energies.
-Research has shown that barefoot contact with the earth can produce instant changes in physiological issues as well as reduce stress and improve the immune system.
-Earthing is recommended to connect to Earth’s surface electrons unhindered by shoes no longer just made of leather.
-
-2.
- 	Mirrors as a technology:  brought in as a way to enhance and de-enhance consciousness.
-Reflective surfaces,
-the implicate observation of the self.
-Portals where brought in later and added to the reflective surface.
-Mirrors allowed more negative aspects for beings that weren’t ready for the exploration.
-Vanity,
-ego and other reflection teachings are used to masterfully manipulate and distort the self-image and the relationship with the world.
-Then there is the residual image through all lifetimes which is influenced by reflective based technology.
-
-3.
- 	RESIDUAL IMAGE is something the soul,
-the avatar uses to distinguish itself between incarnation.
-Every incarnation has its own image.
-If you are in the same lineage over and over again your residual image would be an amalgamation of all the previous images.
-As you are existing in many lineages you will look differently all the time.
-RESIDUAL IMAGE ATTACK…?
-4.
- 	PHOTOGRAPHS can play a role too.
-they're an enhanced reflective technology that is a direct manifestation of alchemy.
-It captures a slice of light in which the consciously entangled observer can see unmanifested matter by reflection of what that time spaced environment in light looks like.
-Our eyes can only see a certain band of frequency that the picture captures even though our DNA instrument as a whole can perceive data beyond the sense of sight through our intuition.
-The limit photographic view can freeze some of the energetics if the entangled observer falls for the limitation through their belief engine.
-It comes back to how manipulative reflective technology can be.
-It has significantly changed the reflections and re-interpretations of history together with the limitations created through the judgment process inherent in unconscious observation.
-
--        BRANDS can effect each one of us individually in our bubbles of reality and also through the use of commonly shared technology.
-Whilst we are not fully aware we need to use technology to connect us with all co-creating realities as part of the greater journey of awakening.
-Every computer has a brand behind them which is a significant portion of the Global Narrative.
-Like for this mac to be produced there is all the Chinese slave labour to put it together and same goes for our cell phones.
-Any piece of technology is built on the shoulders of living generations which allow a collaboration between realities.
-The brand influences the myth how we perceive these technologies.
-Future realities will not brand and market technology which immediately will take out the myth and the subconscious imprinting onto our DNA.
-
-Q: How do brands  effect our physical movement through the hologram? Do I walk differently using my I-Phone versus a pay as you go? Branding creates competition and hierarchy even if you may not realise it.
-The brand imprints on you how you move through reality and how you get perceived by others.
-It’s not cheap either,
-you have to pay to get and stay connected.
-We have bought into the payment system and the myth around technology created by the Global Narrative.
-The Global Narrative is a marketing agency that has got a one star rating only and as such significantly impacts on our *I am* Individualisation journey through the debt based system.
-What happens to our body on the journey of discovering spirit and learning to astral travel,
-journey within or mediate? Your body might not be in motion but chemically there is still a lot going on.
-This is an example of aligning the finite *I am* with the infinite *I am*,
-the chemical & non-chemical experience simultaneously.
-
-CORRUPTION,
- BACK TO NATURAL LIVING & ADVANCED SPIRITUALITY (6)
 Q: What level of societal evolution is required to acknowledge rights for all sentient kind and pass spiritually conscious laws? Brazil for instance has recognised the dolphins as intelligent species and other countries are starting to follow suit.
 If we'd reduce the overall global corruption by 35 percent we'd be at progressive societal levels to begin to pass laws in line with natural co-creative evolution with all sentient kind and replace the ongoing fight for survival in the third and 4th world countries with natural thrival.
 
@@ -125,7 +11,7 @@ stealing our jobs keeps humanity holding on to self-inflicted limitations.
 it's easy to fall prey to this with large corporates exploiting the job market by manipulating supply and demand.
 
 The reversal of the false idea of advanced technology bastardising our standards of living would allow us to recognise the benefits to human evolution.
-We are natural living beings in an ever expanding age of quantum computing and advancing technology is part of our birth right and legacy.
+we're natural living beings in an ever expanding age of quantum computing and advancing technology is part of our birth right and legacy.
 Automation,
 robots can replace a variety of jobs that are dangerous,
 monotonous,
@@ -251,7 +137,7 @@ This is a way to stop TRANSHUMANISM.
 Not all acts of transhumanism are bad but many are ignorant to the greater effect.
 We don’t need implants to have remote observation technology we can all do it through clothing that we can put on and take off.
 There is of course always the choice for people to opt into having an implant without legal enforcement.
-The clothes that we are wearing now are a part of technology that impact on our interaction with people and the environment.
+The clothes that we're wearing now are a part of technology that impact on our interaction with people and the environment.
 A lot of offworlders have polymorphic clothing.
 They get one set of clothing which can be self-clearing,
 self-updating,
@@ -300,7 +186,7 @@ There will be a future *I am*  being,
 a self-healer,
 self-nurturer to go back to the fractualised nature of the many selves and begin to align them to a healing source as part of the healing of the ancestral lineage.
 There are many seen and unseen layers into accepting,
-implementing and understanding that we are the ones creating our reality.
+implementing and understanding that we're the ones creating our reality.
 
 Q: What does co-creation look like when entering advanced spirituality? Co-creation can be identified by the many choice points of free will that maintain the high frequency level of creation versus the limiting experience of a co-dependent relationship.
 Let’s look at the chemistry,
@@ -356,7 +242,7 @@ a living organism modifying the surrounding consciousness through its high densi
 
 You can have dense organisms in your natural living environment.
 Your background thoughts and consciousness will influence everything around you as the observer to a state of natural co-creative growth.
-Through this interaction we are ramping up our density and can apply any conscious teaching as a natural way of life not just practice.
+Through this interaction we're ramping up our density and can apply any conscious teaching as a natural way of life not just practice.
 Think of bringing plants into the house during the cold winter months.
 Have them hanging from the ceiling,
 life surviving and thriving with you because of you,
@@ -381,7 +267,7 @@ Working in your garden,
 trimming the trees,
 weeding your flower beds,
 how does that change the energy? Often the furniture intuits when changes are needed.
-All of that and more is part of environmental intuition we are capable of.
+All of that and more is part of environmental intuition we're capable of.
 Talking,
 listening,
 interacting,
@@ -395,10 +281,10 @@ This can be a result of mutually existing energetic entanglements.
 Have you ever thought your house appreciates you,
 is holding on to you? Our ancestors used ceremonial fires before moving to different heights to interact and prepare the grounds,
 give thanks to the spirits of the land to complete their missions and agendas.
- We are already intuitively working with our environment in aware or unawareness.
+ we're already intuitively working with our environment in aware or unawareness.
 Mindfulness is one of those awareness practices to connect to your environment and live in tune with everything around you.
 
-Q: What is Environmental awareness vs intuition? When things enter into our awareness we are out of intuition as the intuition is more a form of activation.
+Q: What is Environmental awareness vs intuition? When things enter into our awareness we're out of intuition as the intuition is more a form of activation.
 *I am* intuiting,
 my intuition activates me to do this right now.
 In awareness we know we have a free will choice to act upon it right now or as part of our daily agenda.

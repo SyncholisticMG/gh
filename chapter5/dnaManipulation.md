@@ -233,3 +233,15 @@ the tongue is second,
 the third is our lymph system,
 the thymus,
 the fourth and fifth are the gut heart.
+
+
+Our environment interacts with the DNA instruments through the pineal gland.
+Fluorides create a crystalline structure in the fluid sac of the pineal gland.
+The purpose of this crystalline structure is to take scalar wave information from etheric satellites to influence your local dreamtime in the sacred geometry cities.
+Transformers on the light poles along the streets can create an omnidirectional field that interacts with the crystals in our pineal gland to keep us trapped outside global dreamtime.
+The plugs in our room,
+our TV sets,
+computers,
+routers,
+and many other deliberately designed devices create an electromagnetic field to suppress the pineal gland.
+Decalcification of the pineal gland is a good thing.
