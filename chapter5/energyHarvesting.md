@@ -30,7 +30,7 @@ like food production,
 land maintenance,
 and animal captures
 &mdash;
-all taken over by technology based Farming
+all taken over by technology based farming
 &mdash;
 we entered the age of the self.
 They even called the hippie followup decade,
@@ -56,7 +56,7 @@ If we're in the same lineage over and over our residual image is an amalgamation
 As we're existing in many lineages,
 we look differently all the time.
 
-Photographs are they're an enhanced reflective technology that is a direct manifestation of alchemy.
+Photographs are an enhanced reflective technology that is a direct manifestation of alchemy.
 It captures a slice of light in which the consciously entangled observer can see unmanifested matter by reflection of what that time-space environment looks like in light.
 Our eyes can only see a certain band of frequency that the picture captures,
 even though our DNA instrument as a whole can perceive data beyond the sense of sight through our intuition.
