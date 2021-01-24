@@ -1,4 +1,4 @@
-This is pdfTeX, Version 3.14159265-2.6-1.40.18 (TeX Live 2017/Debian) (preloaded format=pdflatex 2020.1.1)  29 DEC 2020 20:50
+This is pdfTeX, Version 3.14159265-2.6-1.40.18 (TeX Live 2017/Debian) (preloaded format=pdflatex 2020.1.1)  23 JAN 2021 18:31
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -107,26 +107,22 @@ File: babel.def 2018/02/14 3.18 Babel common definitions
 \l@australian = a dialect from \language\l@british 
 \l@newzealand = a dialect from \language\l@british 
 ))
-
-LaTeX Warning: Unused global option(s):
-    [9pt].
-
 (./bookTemplate.aux)
 \openout1 = `bookTemplate.aux'.
 
-LaTeX Font Info:    Checking defaults for OML/cmm/m/it on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Checking defaults for T1/cmr/m/n on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Checking defaults for OT1/cmr/m/n on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Checking defaults for OMS/cmsy/m/n on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Checking defaults for OMX/cmex/m/n on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Checking defaults for U/cmr/m/n on input line 9.
-LaTeX Font Info:    ... okay on input line 9.
-LaTeX Font Info:    Try loading font information for T1+ppl on input line 9.
+LaTeX Font Info:    Checking defaults for OML/cmm/m/it on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Checking defaults for T1/cmr/m/n on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Checking defaults for OT1/cmr/m/n on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Checking defaults for OMS/cmsy/m/n on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Checking defaults for OMX/cmex/m/n on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Checking defaults for U/cmr/m/n on input line 10.
+LaTeX Font Info:    ... okay on input line 10.
+LaTeX Font Info:    Try loading font information for T1+ppl on input line 10.
  (/usr/share/texlive/texmf-dist/tex/latex/psnfss/t1ppl.fd
 File: t1ppl.fd 2001/06/04 font definitions for T1/ppl.
 )
@@ -232,134 +228,410 @@ e
 [1
 
 {/var/lib/texmf/fonts/map/pdftex/updmap/pdftex.map}] [2]
-LaTeX Font Info:    Try loading font information for OMS+ppl on input line 66.
+LaTeX Font Info:    Try loading font information for OMS+ppl on input line 67.
 
 (/usr/share/texlive/texmf-dist/tex/latex/psnfss/omsppl.fd
 File: omsppl.fd 
 )
 LaTeX Font Info:    Font shape `OMS/ppl/m/n' in size <10> not available
-(Font)              Font shape `OMS/cmsy/m/n' tried instead on input line 66.
-</home/bruce/Documents/stardustRanch/bci.png, id=10, 171.64125pt x 97.86563pt>
-File: /home/bruce/Documents/stardustRanch/bci.png Graphic file (type png)
-<use /home/bruce/Documents/stardustRanch/bci.png>
-Package pdftex.def Info: /home/bruce/Documents/stardustRanch/bci.png  used on i
-nput line 83.
-(pdftex.def)             Requested size: 85.8204pt x 48.93268pt.
- [3 </home/bruce/Documents/stardustRanch/bci.png>]
+(Font)              Font shape `OMS/cmsy/m/n' tried instead on input line 67.
+ [3]
 LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <24.88> not available
-(Font)              Font shape `T1/ppl/b/n' tried instead on input line 90.
- (./bookTemplate.toc
+(Font)              Font shape `T1/ppl/b/n' tried instead on input line 84.
+
+(./bookTemplate.toc
 LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <12> not available
 (Font)              Font shape `T1/ppl/b/n' tried instead on input line 2.
-)
+LaTeX Font Info:    External font `cmex10' loaded for size
+(Font)              <7> on input line 3.
+LaTeX Font Info:    External font `cmex10' loaded for size
+(Font)              <5> on input line 3.
+ [4
+
+])
 \tf@toc=\write3
 \openout3 = `bookTemplate.toc'.
 
- [4
-
-]
+ [5]
 LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <20.74> not available
-(Font)              Font shape `T1/ppl/b/n' tried instead on input line 92.
- [5
+(Font)              Font shape `T1/ppl/b/n' tried instead on input line 86.
+ [6
 
-]
-(/home/bruce/git/gh/ch1MBSComplex.tex
+] (/home/bruce/git/gh/chapter1/ch1MBSComplex.tex
 LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <14.4> not available
 (Font)              Font shape `T1/ppl/b/n' tried instead on input line 1.
-
-Overfull \hbox (0.46764pt too wide) in paragraph at lines 4--7
-[]\T1/ppl/m/n/10 hologram noun a three-dimensional im-age re-pro-duced
+LaTeX Font Info:    Try loading font information for T1+pcr on input line 3.
+(/usr/share/texlive/texmf-dist/tex/latex/psnfss/t1pcr.fd
+File: t1pcr.fd 2001/06/04 font definitions for T1/pcr.
+)
+Overfull \hbox (514.91998pt too wide) in paragraph at lines 11--11
+[]\T1/pcr/m/n/10 : a three-dimensional image reproduced from a pattern of inter
+ference produced by a split coherent beam of radiation (such as a laser)[] 
  []
 
-[6] [7] [8] [9] [10]
-Overfull \hbox (10.60666pt too wide) in paragraph at lines 209--222
+[7] [8] [9] [10] [11] [12]
+Overfull \hbox (10.60666pt too wide) in paragraph at lines 218--231
 []\T1/ppl/m/n/10 The en-tan-gled ob-server uses a deeper in-for-ma-tion pro-ces
 s, while,
  []
 
-[11] [12] [13] [14]
-Overfull \hbox (1.8062pt too wide) in paragraph at lines 355--364
+[13] [14] [15] [16] [17]
+Overfull \hbox (1.8062pt too wide) in paragraph at lines 364--373
 \T1/ppl/m/n/10 ab-so-lute is nec-es-sary to so-lid-ify con-cepts, but it can pr
 e-vent greater
  []
 
-[15] [16] [17] [18] [19] [20] [21]
-Overfull \hbox (2.34663pt too wide) in paragraph at lines 563--579
+[18] [19] [20] [21] [22] [23] [24]
+Overfull \hbox (2.34663pt too wide) in paragraph at lines 572--588
 []\T1/ppl/m/n/10 Transmigration is the spir-i-tual term for leav-ing the hu-man
  form
  []
 
-[22]
-Overfull \hbox (0.59633pt too wide) in paragraph at lines 622--635
+[25] [26]
+Overfull \hbox (0.59633pt too wide) in paragraph at lines 631--644
 \T1/ppl/m/n/10 scious pro-cess-ing power CPU of the chem-i-cal mem-ory be-ing m
 ade
  []
 
-[23]
-Overfull \hbox (18.11812pt too wide) in paragraph at lines 637--637
-[]\T1/ppl/b/n/12 Free Will, Choice, Con-scious-ness & The Lev-els of Aware-
- []
 
-
-Overfull \hbox (4.3866pt too wide) in paragraph at lines 639--662
+Overfull \hbox (4.3866pt too wide) in paragraph at lines 648--671
 \T1/ppl/m/n/10 netic be-lief en-gines could over-ride faith and be-come a pro-g
 rammed
  []
 
-[24] [25] [26] [27]) [28] (/home/bruce/git/gh/ch2history.tex [29] [30] [31]
-Overfull \hbox (30.55669pt too wide) in paragraph at lines 115--135
+[27] [28] [29] [30] [31]) (/home/bruce/git/gh/chapter2/chapter2.tex [32]
+Overfull \hbox (8.28632pt too wide) in paragraph at lines 3--9
+\T1/ppl/m/n/10 There's a spe-cific fe-tus agenda life-time to life-time. The \T
+1/ppl/m/it/10 avatar \T1/ppl/m/n/10 agenda
+ []
+
+[33]
+Overfull \hbox (10.43646pt too wide) in paragraph at lines 35--42
+\T1/ppl/m/n/10 merce through ce-les-tial minds, us-ing ce-les-tial medi-ums as 
+the guides
+ []
+
+[34]
+Overfull \hbox (0.80649pt too wide) in paragraph at lines 66--72
+\T1/ppl/m/n/10 prac-tice, which be-comes a monthly prac-tice, a yearly prac-tic
+e, then
+ []
+
+[35]
+Overfull \hbox (18.02661pt too wide) in paragraph at lines 120--133
+\T1/ppl/m/n/10 al-low-ing ev-ery-one to un-der-stand the com-mon mes-sages. The
+ seventh-
+ []
+
+[36] [37] [38] [39]
+Overfull \hbox (256.91998pt too wide) in paragraph at lines 247--247
+[]\T1/pcr/m/n/10 One generation passeth away, and another generation cometh: bu
+t the earth abideth for ever.[] 
+ []
+
+[40] [41] [42] [43]
+Overfull \hbox (6.20723pt too wide) in paragraph at lines 358--372
+\T1/ppl/m/n/10 Women can see through this eye in the same man-ner we see throug
+h
+ []
+
+
+Overfull \hbox (13.65666pt too wide) in paragraph at lines 373--383
+[]\T1/ppl/m/n/10 Menstruation con-tin-ues af-ter menopause. Women still go thro
+ugh
+ []
+
+
+Overfull \hbox (2.58589pt too wide) in paragraph at lines 373--383
+\T1/ppl/m/n/10 the cy-cle with-out blood. The fer-til-ity spir-its at-tached to
+ menopause
+ []
+
+
+Overfull \hbox (4.13733pt too wide) in paragraph at lines 384--398
+[]\T1/ppl/m/n/10 Hot flashes can hap-pen when an al-ter-nate ver-sion of the wo
+man
+ []
+
+[44]
+Overfull \hbox (0.39674pt too wide) in paragraph at lines 411--418
+[]\T1/ppl/m/n/10 The fatty de-posits around the mid-line dur-ing menopause serv
+e
+ []
+
+[45] [46] [47]
+Overfull \hbox (0.21661pt too wide) in paragraph at lines 492--499
+\T1/ppl/m/n/10 our post-modern hu-man life --- the dys-func-tional re-la-tion-s
+hip. Re-
+ []
+
+[48] [49]
+Overfull \hbox (4.8349pt too wide) in paragraph at lines 565--576
+\T1/ppl/m/n/10 medium --- \T1/ppl/m/it/10 I trans-fer the all-ness of my-self t
+o be-come the ce-les-tial medium.
+ []
+
+[50] [51]
+Overfull \hbox (100.91998pt too wide) in paragraph at lines 606--606
+[]\T1/pcr/m/n/10 an evolutionary process — an integral function of the univer
+se.[] 
+ []
+
+[52]
+Overfull \hbox (0.26682pt too wide) in paragraph at lines 657--671
+[]\T1/ppl/m/n/10 The for-got-ten selves are part of your for-got-ten work-force
+. They
+ []
+
+
+Overfull \hbox (1.24603pt too wide) in paragraph at lines 657--671
+\T1/ppl/m/n/10 for-got-ten selves will in-te-grate with your pre-cog-ni-tive an
+d postcog-
+ []
+
+[53] [54] [55] [56] [57]
+Overfull \hbox (30.55669pt too wide) in paragraph at lines 798--818
 []\T1/ppl/m/n/10 We want va-gus nerve, sym-pa-thetic, and parasym-pa-thetic sov
 ereignty.
  []
 
-[32] [33]
-! Undefined control sequence.
-l.190 \tightlist
-                
+[58] [59] [60] [61]
+Overfull \hbox (4.367pt too wide) in paragraph at lines 922--929
+[]\T1/ppl/m/n/10 Bystanders some-times ac-com-pany the soul when meet-ing loved
+
+ []
+
+[62] [63] [64] [65] [66] [67] [68] [69] [70] [71] [72] [73] [74] [75])
+(/home/bruce/git/gh/chapter3/chapter3.tex
+Overfull \hbox (6.62675pt too wide) in paragraph at lines 3--22
+\T1/ppl/m/n/10 The sys-tem ac-ti-vates around the rule pa-ram-e-ters. Nu-mer-ou
+s classes
+ []
+
+[76]
+Overfull \hbox (2.69691pt too wide) in paragraph at lines 25--38
+\T1/ppl/m/n/10 tries, na-tions, and space sta-tions re-paired, self-updating, a
+nd clean.
+ []
+
+[77] [78] [79]
+
+LaTeX Warning: File `media/image1.jpeg' not found on input line 125.
+
+
+! Package pdftex.def Error: File `media/image1.jpeg' not found: using draft set
+ting.
+
+See the pdftex.def package documentation for explanation.
+Type  H <return>  for immediate help.
+ ...                                              
+                                                  
+l.125 ...67in,height=4.62361in]{media/image1.jpeg}
+                                                  
 ? r
 OK, entering \nonstopmode...
-[34] [35] [36]
-Overfull \hbox (0.61693pt too wide) in paragraph at lines 264--269
-\T1/ppl/m/n/10 ter-mines our weather pat-terns. We as hu-man be-ings are con-st
-antly
+
+Overfull \hbox (46.82379pt too wide) in paragraph at lines 130--130
+[]\T1/ppl/b/n/14.4 EARTH NOU-VEAU -- IN-SPI-RA-TION TABLET 
+ []
+
+LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <10> not available
+(Font)              Font shape `T1/ppl/b/n' tried instead on input line 133.
+[80] [81]
+Overfull \hbox (4.17532pt too wide) in paragraph at lines 147--149
+[]\T1/ppl/m/n/10 Reg Mem-bers SPIR-I-TUAL COURT OF AL-CHEM-I-CAL EQ-UITY
+ []
+
+! Undefined control sequence.
+l.150 \href
+           {http://www.earthnouveau.com/}{\textbf{\emph{www.earthnouveau.com}}}
+The control sequence at the end of the top line
+of your error message was never \def'ed. If you have
+misspelled it (e.g., `\hobx'), type `I' and the correct
+spelling (e.g., `I\hbox'). Otherwise just continue,
+and I'll forget about whatever was undefined.
+
+LaTeX Font Info:    Font shape `T1/ppl/bx/it' in size <10> not available
+(Font)              Font shape `T1/ppl/b/it' tried instead on input line 150.
+[82] [83] [84]
+! Undefined control sequence.
+l.270 \tightlist
+                
+The control sequence at the end of the top line
+of your error message was never \def'ed. If you have
+misspelled it (e.g., `\hobx'), type `I' and the correct
+spelling (e.g., `I\hbox'). Otherwise just continue,
+and I'll forget about whatever was undefined.
+
+! Undefined control sequence.
+l.286 \tightlist
+                
+The control sequence at the end of the top line
+of your error message was never \def'ed. If you have
+misspelled it (e.g., `\hobx'), type `I' and the correct
+spelling (e.g., `I\hbox'). Otherwise just continue,
+and I'll forget about whatever was undefined.
+
+[85]
+Overfull \hbox (1.87726pt too wide) in paragraph at lines 309--315
+[]\T1/ppl/b/n/10 A: \T1/ppl/m/n/10 It was orig-i-nal meant as a ge-netic map-pi
+ng pro-gram through
  []
 
 
-Overfull \hbox (11.87585pt too wide) in paragraph at lines 270--281
-[]\T1/ppl/m/n/10 ANIMALS & PLANTS as con-scious be-ings of choice, even though
+Overfull \hbox (12.95595pt too wide) in paragraph at lines 309--315
+\T1/ppl/m/n/10 WORLD ob-ser-va-tion tool to track and seed all Hu-man DNA throu
+gh-
  []
 
-[37]) [38] [39
+[86] [87]
+Overfull \hbox (2.98694pt too wide) in paragraph at lines 391--396
+\T1/ppl/m/n/10 troller's con-trol is-sues the data is nowa-days mis-used and di
+s-torted. 
+ []
+
+[88]
+Overfull \hbox (7.10649pt too wide) in paragraph at lines 445--450
+\T1/ppl/m/n/10 mas-ter YB that was de-stroyed that would have al-lowed an overv
+iew
+ []
+
+[89]
+Overfull \hbox (1.52682pt too wide) in paragraph at lines 479--484
+[]\T1/ppl/b/n/10 A: \T1/ppl/m/n/10 They use it as a pre-dic-tion model to en-su
+re the sur-face global
+ []
+
+[90]
+Overfull \hbox (2.2267pt too wide) in paragraph at lines 512--516
+\T1/ppl/m/n/10 holo-graphic sur-face and the mat-ter based sur-face to a cer-ta
+in point.
+ []
+
+[91] [92]
+Overfull \hbox (2.32655pt too wide) in paragraph at lines 576--580
+[]\T1/ppl/b/n/10 A: \T1/ppl/m/n/10 Tech-ni-cally yes, through mi-cro tele-por-t
+a-tion, change in time-
+ []
+
+
+Overfull \hbox (6.48584pt too wide) in paragraph at lines 576--580
+\T1/ppl/m/n/10 evo-lu-tion virus, through forced high level cross DNA lin-eage 
+breed-
+ []
+
+[93]
+LaTeX Font Info:    Font shape `T1/ppl/bx/n' in size <7> not available
+(Font)              Font shape `T1/ppl/b/n' tried instead on input line 634.
+ [94]
+! Undefined control sequence.
+l.671 {[}\protect\hypertarget
+                             {hlk31633551}{}{}{]}\{\#\_Hlk31633551 .anchor\}
+The control sequence at the end of the top line
+of your error message was never \def'ed. If you have
+misspelled it (e.g., `\hobx'), type `I' and the correct
+spelling (e.g., `I\hbox'). Otherwise just continue,
+and I'll forget about whatever was undefined.
+
+[95] [96]) [97] (/home/bruce/git/gh/chapter4/chapter4.tex [98] [99]
+Overfull \hbox (2.0868pt too wide) in paragraph at lines 81--94
+\T1/ppl/m/n/10 equa-tions for the pur-pose of forc-ing a match no mat-ter how m
+inute
+ []
+
+[100] [101] [102] [103] [104] [105] [106] [107] [108] [109] [110])
+(/home/bruce/git/gh/chapter5/chapter5.tex
+Overfull \hbox (7.85687pt too wide) in paragraph at lines 3--16
+\T1/ppl/m/n/10 This can hap-pen alone or in groups ca-pa-ble of pure syn-ergy. 
+Growth
+ []
+
+
+Overfull \hbox (2.35681pt too wide) in paragraph at lines 3--16
+\T1/ppl/m/n/10 is re-flected in the evo-lu-tion of an agenda agreed upon over a
+ longer
+ []
+
+[111] [112] [113]
+Overfull \hbox (0.15746pt too wide) in paragraph at lines 90--97
+\T1/ppl/m/n/10 bad. We need to choose. These are stan-dard con-cep-tions of gro
+wth
+ []
+
+[114] [115] [116]
+Overfull \hbox (18.98615pt too wide) in paragraph at lines 184--200
+\T1/ppl/m/n/10 the tech-nol-ogy of the founders. We're sup-posed to be self-ent
+ertaining,
+ []
+
+
+Overfull \hbox (0.21648pt too wide) in paragraph at lines 184--200
+\T1/ppl/m/n/10 time, the con-text within which our in-nate abil-i-ties grow and
+ adapt.
+ []
+
+
+Overfull \hbox (2.3064pt too wide) in paragraph at lines 184--200
+\T1/ppl/m/n/10 ap-ple is an-other con-trol sys-tem to limit men's sovereignty. 
+It works
+ []
+
+[117] [118] [119] [120] [121] [122]
+Overfull \hbox (1.53714pt too wide) in paragraph at lines 375--384
+[]\T1/ppl/m/n/10 The re-ver-sal of the false idea of ad-vanced tech-nol-ogy bas
+-tardiz-
+ []
+
+[123]
+Overfull \hbox (1.00659pt too wide) in paragraph at lines 405--414
+\T1/ppl/m/n/10 ally avail-able medicine and the end of phar-ma-ceu-ti-cal cor-p
+o-ratism
+ []
+
+
+Overfull \hbox (13.8269pt too wide) in paragraph at lines 415--422
+\T1/ppl/m/n/10 to a true syn-er-gis-tic democ-racy. The bank-ing sys-tem was we
+aponized
+ []
+
+[124]
+LaTeX Font Info:    External font `cmex10' loaded for size
+(Font)              <8> on input line 423.
+LaTeX Font Info:    External font `cmex10' loaded for size
+(Font)              <6> on input line 423.
+ [125] [126] [127]) [128] [129
 
 ]
-</home/bruce/Pictures/star/bruce.jpg, id=133, 216.81pt x 271.0125pt>
+</home/bruce/Pictures/star/bruce.jpg, id=420, 216.81pt x 271.0125pt>
 File: /home/bruce/Pictures/star/bruce.jpg Graphic file (type jpg)
 <use /home/bruce/Pictures/star/bruce.jpg>
 Package pdftex.def Info: /home/bruce/Pictures/star/bruce.jpg  used on input lin
-e 122.
+e 124.
 (pdftex.def)             Requested size: 108.40472pt x 135.5059pt.
- [40 </home/bruce/Pictures/star/bruce.jpg>] (./bookTemplate.aux)
+ [130 </home/bruce/Pictures/star/bruce.jpg>] (./bookTemplate.aux)
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
  ) 
 Here is how much of TeX's memory you used:
- 2743 strings out of 494847
- 38038 string characters out of 6179081
- 106937 words of memory out of 5000000
- 6013 multiletter control sequences out of 15000+600000
- 20071 words of font info for 35 fonts, out of 8000000 for 9000
+ 2861 strings out of 494847
+ 39797 string characters out of 6179081
+ 106563 words of memory out of 5000000
+ 6099 multiletter control sequences out of 15000+600000
+ 32540 words of font info for 56 fonts, out of 8000000 for 9000
  59 hyphenation exceptions out of 8191
- 41i,5n,32p,529b,170s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 41i,8n,32p,529b,310s stack positions out of 5000i,500n,10000p,200000b,80000s
 {/usr/share/texlive/texmf-dist/fonts/enc/dvips/base/8r.enc}</usr/share/texliv
 e/texmf-dist/fonts/type1/public/amsfonts/cm/cmsy10.pfb></usr/share/texlive/texm
-f-dist/fonts/type1/urw/palatino/uplb8a.pfb></usr/share/texlive/texmf-dist/fonts
-/type1/urw/palatino/uplr8a.pfb></usr/share/texlive/texmf-dist/fonts/type1/urw/p
-alatino/uplri8a.pfb>
-Output written on bookTemplate.pdf (40 pages, 164511 bytes).
+f-dist/fonts/type1/urw/courier/ucrr8a.pfb></usr/share/texlive/texmf-dist/fonts/
+type1/urw/palatino/uplb8a.pfb></usr/share/texlive/texmf-dist/fonts/type1/urw/pa
+latino/uplbi8a.pfb></usr/share/texlive/texmf-dist/fonts/type1/urw/palatino/uplr
+8a.pfb></usr/share/texlive/texmf-dist/fonts/type1/urw/palatino/uplr8a.pfb></usr
+/share/texlive/texmf-dist/fonts/type1/urw/palatino/uplri8a.pfb>
+Output written on bookTemplate.pdf (130 pages, 362964 bytes).
 PDF statistics:
- 156 PDF objects out of 1000 (max. 8388607)
- 105 compressed objects within 2 object streams
+ 454 PDF objects out of 1000 (max. 8388607)
+ 310 compressed objects within 4 object streams
  0 named destinations out of 1000 (max. 500000)
- 11 words of extra memory for PDF output out of 10000 (max. 10000000)
+ 6 words of extra memory for PDF output out of 10000 (max. 10000000)
 

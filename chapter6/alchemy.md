@@ -59,8 +59,8 @@ Remain vigilant against any internal or external programs or incoherent energies
 
 Start with a curious mind.
 Put a stop to endless seeking when things go awry.
-There comes a point where curiosity ends and active learning begins.
-If you are serious about being on this awakening journey you won’t get away with curiosity learning.
+Curiosity ends and active learning begins.
+If you're serious about being on this awakening journey you won’t get away with curiosity learning.
 Your emanation will not be authentic.
 People will eventually see through your superficial emulations and walk away.
 Curiosity has been weaponized.

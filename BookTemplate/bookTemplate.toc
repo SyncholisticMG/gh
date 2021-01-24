@@ -1,3 +1,51 @@
 \babel@toc {english}{}
-\contentsline {part}{I\hspace {1em}Fundamentals}{5}
-\contentsline {part}{II\hspace {1em}Appendices}{39}
+\contentsline {part}{I\hspace {1em}Fundamentals}{6}
+\contentsline {section}{\numberline {0.1}The Divine Hologram}{7}
+\contentsline {subsection}{\numberline {0.1.1}The Entangled Observer in the Implicate \& Explicate Order}{12}
+\contentsline {subsection}{\numberline {0.1.2}Traveling}{18}
+\contentsline {subsection}{\numberline {0.1.3}Pre and Post Cognitive Workforces}{22}
+\contentsline {subsection}{\numberline {0.1.4}Free Will, Choice, Consciousness \& The Levels of Awareness}{27}
+\contentsline {subsection}{\numberline {0.1.5}The Levels of Awareness}{32}
+\contentsline {subsection}{\numberline {0.1.6}Agendas}{33}
+\contentsline {subsection}{\numberline {0.1.7}The Awakening Journey}{33}
+\contentsline {subsection}{\numberline {0.1.8}Celestial Medium Journey}{35}
+\contentsline {subsection}{\numberline {0.1.9}Crystallization}{38}
+\contentsline {subsection}{\numberline {0.1.10}DNA}{39}
+\contentsline {subsection}{\numberline {0.1.11}Fairies}{41}
+\contentsline {subsection}{\numberline {0.1.12}The Farm}{42}
+\contentsline {subsection}{\numberline {0.1.13}Fertility and Spirituality}{44}
+\contentsline {subsection}{\numberline {0.1.14}Karma}{47}
+\contentsline {subsection}{\numberline {0.1.15}The Literal Metaphor}{50}
+\contentsline {subsection}{\numberline {0.1.16}Mandela Effect}{52}
+\contentsline {subsection}{\numberline {0.1.17}Mind Heart Gut Super Highway}{54}
+\contentsline {subsection}{\numberline {0.1.18}Mineral Consciousness}{60}
+\contentsline {subsection}{\numberline {0.1.19}Near Death}{60}
+\contentsline {subsection}{\numberline {0.1.20}Personal Effort}{64}
+\contentsline {subsection}{\numberline {0.1.21}Precognitive Sharing}{66}
+\contentsline {subsection}{\numberline {0.1.22}Source Connection}{67}
+\contentsline {subsection}{\numberline {0.1.23}Spacial Awareness}{69}
+\contentsline {subsection}{\numberline {0.1.24}Splitting Consciousness}{70}
+\contentsline {subsection}{\numberline {0.1.25}Superluminal Thinking}{71}
+\contentsline {subsection}{\numberline {0.1.26}Temporal Manipulation}{72}
+\contentsline {subsection}{\numberline {0.1.27}Thymus}{73}
+\contentsline {subsection}{\numberline {0.1.28}Unvanquished Dream}{75}
+\contentsline {subsection}{\numberline {0.1.29}Weather}{76}
+\contentsline {subsection}{\numberline {0.1.30}AUDIT}{77}
+\contentsline {subsection}{\numberline {0.1.31}Founder Beings}{77}
+\contentsline {subsection}{\numberline {0.1.32}Global Narrative}{79}
+\contentsline {section}{\numberline {0.2}EARTH NOUVEAU -- INSPIRATION TABLET}{82}
+\contentsline {subsection}{\numberline {0.2.1}TABLET SET UP}{82}
+\contentsline {subsection}{\numberline {0.2.2}INTRODUCTION \& MOTIVATION}{83}
+\contentsline {subsection}{\numberline {0.2.3}MASTER CARDS}{85}
+\contentsline {subsection}{\numberline {0.2.4}TEMPLATES FOR CARDS}{86}
+\contentsline {subsection}{\numberline {0.2.5}Yellow Box}{96}
+\contentsline {subsection}{\numberline {0.2.6}Agencies}{98}
+\contentsline {subsection}{\numberline {0.2.7}Entities and Demons}{104}
+\contentsline {subsection}{\numberline {0.2.8}The I Am Individuation Process}{108}
+\contentsline {subsection}{\numberline {0.2.9}Schumann Resonance}{111}
+\contentsline {subsection}{\numberline {0.2.10}Co-creation}{111}
+\contentsline {subsection}{\numberline {0.2.11}Modern DNA manipulation}{114}
+\contentsline {subsection}{\numberline {0.2.12}Energy Harvesting Technology}{121}
+\contentsline {subsection}{\numberline {0.2.13}Natural Living}{123}
+\contentsline {subsection}{\numberline {0.2.14}Technology and Destiny}{126}
+\contentsline {part}{II\hspace {1em}Appendices}{129}
