@@ -1,81 +1,4 @@
-## Language as Time
 
-Lots of people reject word learning.
-The school system leaves trauma imprints.
-All the information,
-all the data,
-all the capacities and skills are within us.
-We lack the context to apply language.
-It's so limiting.
-The significant structural components of grammars delimit time
-&mdash;
-past,
-present,
-future
-&mdash;
-and then deeper into time potentiates,
-past,
-present,
-and future perfect.
-The point is clear.
-Language is time.
-Subject acts against object in time.
-It's the human condition reduced to a simple linguistic principle.
-We,
-the human beings
-&mdash;
-the subject
-&mdash;
-act upon the object
-&mdash;
-the world.
-We want to see our effect upon time and outcome.
-We're exploring this third dimensional space.
-This is the principle of learning in a free will world.
-
-
-
-Q: Nurturing our hidden treasures through catalysation instead of waiting for activation? In order to use our DNA instrument to the fullest capacity and tap into our skills we need to stop giving away our core energy.
-Instead of preserving and tapping into our own energy source connection we keep using the background,
-radioactive radio electromagnetic frequencies to stay motivated.
-This will not assist us if we want to continue on the path of exploration and consistent evolutionary growth.
-There comes a point where the living algorithm of life transcends into the ocean of consciousness.
-It is no longer an algorithm but an emanation of light in a collective of other emanations of light that are sharing a flicker frequency.
-We are not an equation,
-we are not just binary numbers,
-we are so much more than that.
-This is also why the fractured world view between science,
-cosmology,
-spirituality does not work as they don't look from a unified,
-holistic perspective of who we actually are and how we are interacting with our environment,
-on this planet and beyond.
-
-Our environment does not activate us by itself.
-We can use external sources as a catalyst to get us understand that we are the spark solely responsible to fuel our inner journey.
-We use external factors to help us solidify growth situations.
-Let’s take Hellenic Science as an example.
-When it comes to the geometric patterns and shapes that are used in Hellenic Science these are holographic activations because you can see the fabric of reality as a sidual,
-a symbol of power.
-Not all siduals contain the same potency and power but Hellenic Science has amassed a bunch of very potent siduals that have mythological power behind them,
-meaning that previous generations have used them as their daily prayer and belief process.
-Even though those cultures no longer exist today their myth energy is still behind them,
-suspended in the hologram waiting for us to connect to it.
-Time and space are not real and therefore the hologram and the siduals never truly lose power.
-They are forever gaining potency and power the more they are observed as a sidual or holographic geometry.
-You can go into a grand master doodling state and allow sacred symbols and glyphs of power to be created.
-A glyph is different to a sidual.
-A glyph is more personalised with an expression behind it to have a unique kind of catalysation as a form of experience.
-Once you allow yourself to have several layers of sensing and processing data without any of them competing with each other internally you have reached a major identifying marker in time.
-This kind of multidimensional expression is our birth right and legacy.
-The journey to get there is practice.
-The more multiple aspects of your journey you practice the more new perspectives you gain to see how multidimensional reality can work for you.
-
-Don't rely on external sources or allow curiosity learning drive your process.
-Put your mind to what you want to achieve,
-add time and enthusiastic effort and your awareness of your hidden treasures will change and increase through diligent application.
-Keep the pleasure factor and stay joyfully connected to living in this world not allowing spiritual things and spirituality to drain off your social skills.
-Don’t ever limit yourself,
-have the courage of your convictions and know that trying to control yourself or your environment is a fictional idea of self-deception.
 
 Q: Let’s talk about some of those hidden treasures regarding our bodies that we have not acknowledged yet?
 THE POWER OF TASTE: Human beings existing as of today have explored maybe 15% of their taste capacity.
@@ -86,7 +9,7 @@ Two hundred years ago,
 the naturally living could taste the air and tell you through the taste of the air if it was going to rain that day.
 We can do that too.
 
-THE POWER OF SMELL: Even though as humans we are limited in our sense of smell compared to dogs but we have a psychic scent because the nerves that make up the sense of smell still go through the third eye as parts of the rods and cones.
+THE POWER OF SMELL: Even though as humans we're limited in our sense of smell compared to dogs but we have a psychic scent because the nerves that make up the sense of smell still go through the third eye as parts of the rods and cones.
 Our third eye is a combination of all of our sensing organs.
 And the sense of smell can very much be a super,
 super psychic sense.
@@ -114,7 +37,7 @@ clairaudience,
 clairsentience which are all much higher experiences that you may have in a remote viewing session.
 
 Who remembers Uri Geller? He was known as a magician for bending spoons but he used a lot more of those hidden treasures,
-capacities we are talking about.
+capacities we're talking about.
 He was a clairvoyant,
 known as a remote viewer and hired by the oil and gas industry,
 by many major corporations to find oil and gold.
@@ -189,7 +112,7 @@ Women have been abused over millennia to be used as speed bumps in the advertisi
 
 HIDDEN TREASURES : CREATING WITH THE ELEMENTS IN NATURE
 WATER is programmable and as we learn to imprint on the water we can give energy to the oceans and acknowledge all ocean species and marine life including the merfolk communities.
-We are at a time where we can do great healing to all sentient kind as the ocean flows through its tidal mechanics and adds a greater perspective of ebb and flow energies in our reality.
+We're at a time where we can do great healing to all sentient kind as the ocean flows through its tidal mechanics and adds a greater perspective of ebb and flow energies in our reality.
 You can use the focus of that tidal energy to create intense releases and create with it.
 As the tide comes in you can laser focus your awareness to the intensity of the energy and on the way out allow all of your distractions to flow out and use the potency of the ocean to help you make masterful manifestation and practices.
 When you work with water use the power of the out loud,
@@ -284,9 +207,9 @@ carbon monoxide,
 water etc,
 all influenced by the global weather patterns on giant and micro scale.
 The same with oxygen inside lakes,
-rivers and puddles as part of the hologram in which we are entangled as particles moving through that hologram.
-Through the entanglement with the weather patterns we are being subjected to the changes.
-We are at cause & effect of the weather until we build a house that keeps us protected in a bubble of reality even though the weather is still raging outside.
+rivers and puddles as part of the hologram in which we're entangled as particles moving through that hologram.
+Through the entanglement with the weather patterns we're being subjected to the changes.
+We're at cause & effect of the weather until we build a house that keeps us protected in a bubble of reality even though the weather is still raging outside.
 Having said that it still effects us inside the house through pressure as water is blended with oxygen in the air that we breath.
 We can manipulate the weather,
 the clouds.
@@ -313,7 +236,7 @@ We can break our planet down into 8,
 Each realm has its own independent time as well as specific purpose with different types of elemental entities and background rules.
 If you are living next to a mountain,
 you obviously have much more granite around you than if you are living in a cornfield.
-Corn is its own etheric lifeforce entity but here we are talking just about the elementals which are more like a semi-automated response.
+Corn is its own etheric lifeforce entity but here we're talking just about the elementals which are more like a semi-automated response.
 They have intelligence to them to accomplish their tasks and to know if they are working outside of their mission.
 Those 8,
 600 realms span over the surface timeline only.
@@ -331,7 +254,7 @@ can hurt other elemental energies and are a different type of technology .
 Q: GOLD & SILVER as part of earth & our bodies? Earth has more gold than we can use.
 There is gold everywhere in our backyards,
 just in flex and there are positive ways to mine gold too.
-We are unfortunately using gold for the wrong purpose,
+We're unfortunately using gold for the wrong purpose,
 90% is for industrial use and only 10% recreational.
 Think about that.
 Gold is meant to be available to all of us.
@@ -578,7 +501,7 @@ Make no mistake,
 every aspect of the farm has been commoditized as part of the Galactic Commerce Market.
 
 Q: How would we do that by moving around? Everyone is a living breathing paradox inside a paradox timeline reality to participate and create final karmic resolution.
-We are a paradox inside a paradox inside a paradox inside another paradox which opens up a wide range of opportunities to create those new micro elements.
+We're a paradox inside a paradox inside a paradox inside another paradox which opens up a wide range of opportunities to create those new micro elements.
 Every time you go into a medium level of energy,
 let's just say happily driving a car and listening to some music you could be producing elements and micro compounds that have never existed before and because they're not attached to your bubble of hologram they will fall out behind you like dust particles,
 micro dust particles.
@@ -588,6 +511,6 @@ this is just another way that the entire planet from ground up is here to resolv
 Even the leaves are designed to fall a certain way to resolve karma.
 The entire surface timeline on this planet is a machine to resolve karma.
 As our shards,
-parts and avatars are working together in unison and harmony together with our environment we are creating potent and powerful elements in awareness or unawareness.
-The more we are in our joy and authentic expression we can create magic like that.
-The fact that we are not surrounded by all those rare and hidden elements and metals in our city structures and homes the lack frequency is being amplified.
+parts and avatars are working together in unison and harmony together with our environment we're creating potent and powerful elements in awareness or unawareness.
+The more we're in our joy and authentic expression we can create magic like that.
+The fact that we're not surrounded by all those rare and hidden elements and metals in our city structures and homes the lack frequency is being amplified.
