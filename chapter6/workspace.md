@@ -1,104 +1,28 @@
+## Speed Bumps
 
 
-Q: Let’s talk about some of those hidden treasures regarding our bodies that we have not acknowledged yet?
-THE POWER OF TASTE: Human beings existing as of today have explored maybe 15% of their taste capacity.
-We can taste light but we don’t know how to.
-Just like a kid who's never been taught to do mathematical tables they don't need to do them to survive.
-We have yet to learn the next levels of sense of taste.
-Two hundred years ago,
-the naturally living could taste the air and tell you through the taste of the air if it was going to rain that day.
-We can do that too.
+People are forced into bilocation all the time.
+They just don't realize it because it isn’t what they think it is.
+This is a tremendous insight into many of the mysteries of consciousness.
+Many times we are already doing something but lack the contextual understanding.
+Think of our dormant abilities like languages we don't speak.
+We can hear the language but not understand it,
+therefore we tune it out,
+but it never goes away.
+The same is true of our higher receptions in consciousness.
+They're there.
+We just tune them out.
+Premodern cultures shared dream time.
+Their lives and culture was internal and external.
+We all share dream time,
+but it has been blocked,
+hijacked,
+disturbed in the mega cities.
+Energy speed bumps in our environment can kick us out of our bodies and bilocate us.
 
-THE POWER OF SMELL: Even though as humans we're limited in our sense of smell compared to dogs but we have a psychic scent because the nerves that make up the sense of smell still go through the third eye as parts of the rods and cones.
-Our third eye is a combination of all of our sensing organs.
-And the sense of smell can very much be a super,
-super psychic sense.
-
-THE SENSE OF SIGHT: The sense of sight is still a combination of ears,
-and nose,
-and taste,
-and center of gravity that allows us to have a sense of touch through our body in motion which creates gyroscopic effects throughout our chakra systems.
-There are gifted young children who can read a book by just putting their hand on it.
-Our sight is intrinsically linked to the rest of our senses it can perceive touch as much as it can perceive scent and taste and sound.
-
-THE SENSE OF SOUND: Like right now our eyes can hear because hearing is an integral part of speaking.
-A person that has been deaf their whole life can feel the vibrations of their voice which makes up their language system.
-Their eyes feel the vibration as much as their nose and their tongue and the rest of their body.
-
-Q: Let’s talk about REMOTE VIEWING – URI GELLER
-Well,
-let's break down remote viewing versus remote experiencing.
-Empathy is the lowest scale of observational skill sets the way that remote viewing is described by Ed Dames and the people that originally brought it out.
-There are many different modalities of remote viewing.
-Just like Reiki there are many versions of reiki passed down in a lineage that differ from the original Sensei Usui one.
-Some remote viewing versions are more advanced and some are super simplistic.
-Remote viewing can be a state of perception which is the lower levels of psychic expression or there is clairvoyance,
-clairaudience,
-clairsentience which are all much higher experiences that you may have in a remote viewing session.
-
-Who remembers Uri Geller? He was known as a magician for bending spoons but he used a lot more of those hidden treasures,
-capacities we're talking about.
-He was a clairvoyant,
-known as a remote viewer and hired by the oil and gas industry,
-by many major corporations to find oil and gold.
-He made boatloads of money helping them find natural resources all over the world.
-As a dowser he didn't use any rods just his hands and intuition,
-marking oil resources on a map as he was flying over a particular area.
-As a person operating in an era where there were far less restrictions on psychic skills in the mid 70s to the late 90s even now he is still relevant.
-Part of what he did was allow people to accept that anyone could have a psychic skill and that it could be used in professional business.
-American or European corporates aren’t really big on allowing psychic skill sets.
-The second you travel to China,
-every major business meeting in which contracts are negotiated and signed,
-the CEOs are flanked by psychics.
-There are freelance psychics that are hired by companies,
-because of the type of skill sets they have to understand the negotiating patterns of the person in front of them.
-There is not a single contract in Hong Kong or China that is signed without psychic approval which is a very ancient tradition and business practice.
-
-Q: What made Uri Geller so different to any of us? His spiritual contracts in a modern age of modern media.
-He was the first psychic superstar since the Elizabethian mystics.
-At the age of five,
-being hit by a laser beam coming from an orb in a field,
-he became activated to develop his skills ie bending spoons etc.
-He trusted his skills without doubt and hesitation and synchronicities started lining up.
-Those synchronicities were pre-arranged through the foetus of the womb blueprint to make him highly exposed to billions of households worldwide.
-It is fair to say in ancient time he was a highly notable personality that had many lifetimes of great notability for whatever subject matter he got himself into.
-Therefore his energy or essence was easily recognizable which allowed for grand spiritual contracts of recognition through media.
-He inspired millions of people to go and look at their esoteric,
-spiritual and psychic journey.
-Controversial his nature,
-he was one of the first ones to break the glass ceiling of what a psychic could do,
-which forever created attacks against him.
-Even when he left the public eye the attacks still continued to damage his name.
-That just made him more popular,
-enough to jump generations.
-Uri Geller is a great example to illustrate possible capacities that require discipline and courage,
-which are not mystical,
-to succeed.
-If you look at my journey I now had nine years of practice on air and twenty years before that practicing privately and throughout all the work I did with my clients.
-I have evolved in the way that I do things and everything I have practiced before is a fundamental part of who I am now as a presenter.
-The basics of all the teachings I talk about now I can trace back in my many notebooks from the past few years.
-
-Q: What is your take on TELEKINESIS? The amount of energy that it takes to move something telekinetically,
-even just a little bit of the shake of an object is tremendous and most people don’t produce that added psychic energy in a year that is required to do it because they operate on micro volts.
-For telekinesis to work,
-without you being predisposed to it through spiritual contracts,
-you need to be plugged into the macro volt and then the macro volt above that so that you can tap into an energy source even higher than you that is not in competition or running an agenda of instant gratification.
-Many people try telekinesis and get disheartened and frustrated when they don’t succeed.
-Just like shapeshifting telekinesis can be destructive and energy draining if one underestimates the fundamental requirements of macro volt connection and skill sets that would come as part of the spiritual contracts pre-programmed in the foetus of the womb.
-
-Q: What are ENERGETIC SPEED BUMPS with regards to BILOCATION People are forced into bilocation all the time,
-they just don't realize they're doing it because it isn’t what they think it is.
-There are certain energy speed bumps in our environment that kick us out of our body and force us to bilocate.
-Have you ever been in the parking lot,
-you are going too fast and you see that speed bump at the last second? You put on the brakes accompanied by that sound to tell you that you hit it too hard.
-That can kick you out of your energy frequency,
-and force you to bilocate,
-meaning you're behind the speed bump and suddenly you are in front of the speed bump having skipped going over it.
-There is the bilocating you ahead of the speed bump and the part of you that is still located behind the speed bump joining you again in front and you never really hit that speed bump.
-
-Energetic speed bumps naturally occur everywhere around this planet.
-The negatives of our world have figured out how to make them into oversized speed bumps,
-no matter how fast or slow you go it still puts you into a major up and down motion effecting your energetic field.
+Energetic speed bumps occur naturally everywhere on our planet.
+The negatives of our world supercharge our speed bumps.
+No matter our speed the bump puts us into a major up and down motion affecting our energetic field.
 Think of walking through a mall at Christmas time.
 The negative energies want to set up an energy speed bump every five to ten steps.
 Why? Because that is how they harvest your energy,
