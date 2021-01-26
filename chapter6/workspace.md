@@ -30,8 +30,9 @@ Water is the most valid history on the planet.
 It bears witness to all.
 It's literally the record of things at an elemental level.
 
-This planet has had its water and snow stolen from it over hundreds of generations.
-Global disasters have been purposely created to redistribute the ancient water that was imprinted by high dimensional beings and whose goal it was to protect the Earth.
+Our planet has had its water and snow stolen over hundreds of generations.
+Global disasters have been planned and executed to redistribute the ancient water.
+It was imprinted by high dimensional beings whose purpose was protection of the earth.
 Throughout those catastrophes deepest water would come to the surface to be reprogrammed by technological species using false light technology.
 Water was taken off the planet by the trillions of gallons of snow and ice to plant it on other worlds and replace it with polluted water for Earth to cleanse it and clear its karma.
 The merfolk community can tell the stories of those thefts and betrayals and account for how much garbage was returned.
