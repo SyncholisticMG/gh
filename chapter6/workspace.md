@@ -1,51 +1,34 @@
-## Speed Bumps
 
+## Water
 
-People are forced into bilocation all the time.
-They just don't realize it because it isn’t what they think it is.
-This is a tremendous insight into many of the mysteries of consciousness.
-Many times we are already doing something but lack the contextual understanding.
-Think of our dormant abilities like languages we don't speak.
-We can hear the language but not understand it,
-therefore we tune it out,
-but it never goes away.
-The same is true of our higher receptions in consciousness.
-They're there.
-We just tune them out.
-Premodern cultures shared dream time.
-Their lives and culture was internal and external.
-We all share dream time,
-but it has been blocked,
-hijacked,
-disturbed in the mega cities.
-Energy speed bumps in our environment can kick us out of our bodies and bilocate us.
-
-Energetic speed bumps occur naturally everywhere on our planet.
-The negatives of our world supercharge our speed bumps.
-No matter our speed the bump puts us into a major up and down motion affecting our energetic field.
-Think of walking through a mall at Christmas time.
-The negative energies want to set up an energy speed bump every five to ten steps.
-Why? Because that is how they harvest your energy,
-they're not there to pick your pocket.
-Every time you walk into a store and you see a sign that says Sales 70% off,
-there is your energetic speed bump to energetically slow you down and pay attention to what is on sale.
-Any parking lot where you keep spinning and spinning looking for a parking space could be considered one of those speed bumps slowing your down,
-getting you frustrated to drain and harvest energy off you.
-Billboards catching your attention would be another speed bump.
-Women have been abused over millennia to be used as speed bumps in the advertising industry.
-
-HIDDEN TREASURES : CREATING WITH THE ELEMENTS IN NATURE
-WATER is programmable and as we learn to imprint on the water we can give energy to the oceans and acknowledge all ocean species and marine life including the merfolk communities.
-We're at a time where we can do great healing to all sentient kind as the ocean flows through its tidal mechanics and adds a greater perspective of ebb and flow energies in our reality.
-You can use the focus of that tidal energy to create intense releases and create with it.
-As the tide comes in you can laser focus your awareness to the intensity of the energy and on the way out allow all of your distractions to flow out and use the potency of the ocean to help you make masterful manifestation and practices.
-When you work with water use the power of the out loud,
-name it to claim it process.
-Give the water your voice and as it is going out you are sending programming and that potency of intention out to the farthest edges of the ocean to share your spiritual cord of equity with every cell and atom of water that is in the great food chain of life.
-Begin to acknowledge all ocean life including the shrimp and kelp in the prayer process as well as the great ocean itself and its life force and allow it to speak to you through the tidal action,
-confirming and affirming your feelings for the programmed water.
-In this undertaking of intimately relating you will experience a whole new layer of understanding.
-A valid history lesson will be being taught by the programs of this water on this planet and the truth will be told.
+Water is programmable.
+As we learn to imprint on water we can give energy to the oceans.
+We can acknowledge all ocean species and marine life.
+We're at a time where we can do great healing to all sentience on the planet.
+We are that majestic.
+The ocean flows through its tidal mechanics.
+It's a waking dream meditation on the ebb and flow of energies in our reality.
+We can use the tidal energy to for intense releases.
+We can create with it.
+Focus our awareness with full intent and presence to the intensity of the energy.
+On the way out allow all our distractions to flow out.
+Use the potency of the ocean for masterful manifestation.
+Give the water our voice.
+The water will carry our voice to the full length and depth of its volume,
+and to all the tributaries,
+rivers,
+lakes,
+and deep aquifers throughout the world.
+Water can carry our voice.  
+Acknowledge all ocean life in the prayer process,
+the ocean itself,
+its life force.
+Sync with the tidal motion.
+Confirm your feelings for the programmed water.
+We experience a whole new dimension of understanding.
+Water is the most valid history on the planet.
+It bears witness to all.
+It's literally the record of things at an elemental level.
 
 This planet has had its water and snow stolen from it over hundreds of generations.
 Global disasters have been purposely created to redistribute the ancient water that was imprinted by high dimensional beings and whose goal it was to protect the Earth.
