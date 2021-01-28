@@ -1,91 +1,17 @@
 
-## Water
 
-Water is programmable.
-As we learn to imprint on water we can give energy to the oceans.
-We can acknowledge all ocean species and marine life.
-We're at a time where we can do great healing to all sentience on the planet.
-We are that majestic.
-The ocean flows through its tidal mechanics.
-It's a waking dream meditation on the ebb and flow of energies in our reality.
-We can use the tidal energy to for intense releases.
-We can create with it.
-Focus our awareness with full intent and presence to the intensity of the energy.
-On the way out allow all our distractions to flow out.
-Use the potency of the ocean for masterful manifestation.
-Give the water our voice.
-The water will carry our voice to the full length and depth of its volume,
-and to all the tributaries,
-rivers,
-lakes,
-and deep aquifers throughout the world.
-Water can carry our voice.  
-Acknowledge all ocean life in the prayer process,
-the ocean itself,
-its life force.
-Sync with the tidal motion.
-Confirm your feelings for the programmed water.
-We experience a whole new dimension of understanding.
-Water is the most valid history on the planet.
-It bears witness to all.
-It's literally the record of things at an elemental level.
+## Floods and Hurricanes
 
-Our planet has had its water and snow stolen over hundreds of generations.
-Global disasters have been planned and executed to redistribute the ancient water.
-It was imprinted by high dimensional beings whose purpose was protection of the earth.
-Throughout those catastrophes deepest water would come to the surface to be reprogrammed by technological species using false light technology.
-Water was taken off the planet by the trillions of gallons of snow and ice to plant it on other worlds and replace it with polluted water for Earth to cleanse it and clear its karma.
-The merfolk community can tell the stories of those thefts and betrayals and account for how much garbage was returned.
-Some water was more valuable than the rarest minerals which is part of why there are so many sub and surface species that are looking for the reserves of the ancient programmed water.
-During the industrialisation age the main water wars ended as they ran out of excuses to take out miles and miles of ice.
+Electromagnetic frequencies are created in a flood.
+The water strips electrons from the surface as it moves.
+This increases the speed of the water.
+A dam break creates rapid flow of water.
+Tidal energy rolls into the shores of the world.
 
-A powerful example of creating with Storms: In one of the shows a lady from Jamaica phoned in feeling activated on a DNA level through the storms on the island.
-Jamaica is surrounded by coral reefs and sits on top of a giant crystal.
-That crystal creates piezoelectrical effects when under pressure.
-When a hurricane comes towards Jamaica the piezoelectrical impact is increased up to three hundredfold or more as well as the background electromagnetic Schumann resonance.
-The hurricane itself has low pressure that is affecting the physical body forcing more electricity to go through the auric field.
-That can create an anxiety effect as we don’t know what to do with the energy.
-Past practitioners on Jamaica where weather manipulators who could harvest the energy and use them for massive magical rituals to help heal the land,
-nourish the soil to grow better crops and heal people or redirect the energy back into the storm to balance the next year’s harvest.
-When you are in tune with the weather you can literally become the storm.
-As you start living in harmony with it you can ask the elements to shift the clouds.
-In the journey of being meaningful and aligned to that energy you will learn new ways of interacting with it.
-Instead of just moving the storm you can add your energy to it to balance out karma.
-Every drop of rain and every gust of wind is a balancing of energetic karma.
-You can bring your blessings and purity to that storm,
-give it a ‘wind colonic’.
-A storm can be a perfect time to create with like that caller working on conception.
-The storm is like allowing the egg to hatch because the veil between realities is thin when the storm moves through.
-One can tap into the energy of the storm itself and increase the fertility factor by putting the wind energy into the sperm and the egg.
-Both partners can guide it to connect through the storm and allow the background electromagnetic radiation and the energy of the storm to create that fertile communion.
-The storm can be the portal,
-the soul is already there.
 
-VULCANO
-When Mount St Helens went off the energy was equivalent to 1600 times the size of Hiroshima,
-that’s how much power was behind it.
-The Krakatoa volcano explosion in 1883 in Indonesia was so loud that everyone in the world could hear it,
-gigantic dust particles were put into the air.
-The energy that is produced through a volcanic eruption is easily harvestable by off world technology.
-Inside the pyroclastic cloud which is destructive to living sentients is pure static electricity,
-pure energy that can be absorbed into the offworld vessels purely by being in the cloud.
-Ufos can easily enter and leave the clouds,
-it often almost looks like they are shooting beams of energy into the volcano.
-When the volcano settles it creates lava tubes,
-access to the deep underground sites.
-Those volcanic explosions create pure energy and people are attracted to live close by.
-They would have spiritual contracts to choose to live there and experience regular spikes of super high frequency,
-not all positive to their energy and physical bodies.
 
-FLOODS & HURRICANES
-Depending on how the flood forms electromagnetic frequencies are being created.
-The water,
-as it is moving,
-is stripping electrons from the surface and increasing speed of the moving water.
-When a dam breaks there is pressure creating rapid flow.
-Tidal energy is constantly bashing up against the shore.
 Hurricanes push the water inland as well as Tsunamis,
-they are both rapid releases of electromagnetic energies.
+They're both rapid releases of electromagnetic energy.
 All these occurrences have wisdom and bring along treasures.
 What happens on the unseen side? Negative entities getting swept away.
 In New Orleans,
