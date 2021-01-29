@@ -7,60 +7,66 @@ The water strips electrons from the surface as it moves.
 This increases the speed of the water.
 A dam break creates rapid flow of water.
 Tidal energy rolls into the shores of the world.
-
-
-
-Hurricanes push the water inland as well as Tsunamis,
+Hurricanes push the water inland,
+as do Tsunamis.
 They're both rapid releases of electromagnetic energy.
-All these occurrences have wisdom and bring along treasures.
-What happens on the unseen side? Negative entities getting swept away.
-In New Orleans,
-after the hurricane,
-was a massive purging of five centuries of ghosts.
-The city was never the same after that as many ghost communities had left who had figured out to harvest the land as well as the people.
+All these occurrences have wisdom and bring treasures.
+On the unseen side negative entities get swept away.
+Hurricane Katrina in New Orleans was a massive purge of five centuries of ghosts.
+The city was never the same after Katrina.
+The ghost communities had figured out how to harvest the land and the people.
+The energetics of the hurricane destroyed their psycho-spiritual ecosystem,
+their economy.
 
-BACKGROUND ELEMENTALS
-There are other interlinked particles that are BACKGROUND ELEMENTALS that remain part of the Ocean of Awareness without individuating into animated consciousness until we have the language to describe them as well as those extremely rare ones existing on this and other planets,
-a potent contribution to our lives and yet not made available to us to the true extent possible.
 
-The emergence of self-healing and transformation from metallic materials presents an exciting paradigm for an idea of the combination of metallic and biological properties.
-How does the Earth and we as human beings interact with those elements in our environment? Every planet has a different crystalline layer that is a massive piezoelectric field.
-On a planetary level,
-the right mixture of elemental compounds embedded with crystals is called the slurry.
-There are some planets where gold is very rare.
-A planet with less gold resources does not have a naturally high electromagnetic cycle.
-As electromagnetic waves from the solar system,
-like solar flares,
-hit a planet it will retain them for a period of time and go through an evolutionary process,
-different for each planet.
+## Background Elementals
 
-Q: How does Oxygen interact with us and the planet? The OXYGEN in our air is not pure.
+Background elementals are interlinked particles,
+part of the ocean of awareness without individuation,
+not yet formed into animated consciousness.
+We don't have any literature on them in the esoteric record.
+The term itself is appointed here.
+Extremely rare background elementals exist on earth and other planets.
+They could be a potent contribution to our lives.
+They are not yet available to us as a consciousness interaction.
+How the earth,
+and we as human beings on the earth,
+interact with these elements in our environment is as astounding as everything else in the spiritual economy.
+Every planet has a different crystalline layer,
+and each is a unique piezoelectric field.
+The right mixture of elemental compounds embedded with crystals on a planet is called the slurry.
+There are planets where gold is very rare.
+A planet with less gold resources doesn't have a naturally high electromagnetic cycle.
+Electromagnetic waves from the solar system are constant,
+solar flares for example.
+The planet retains them for a period of time.
+They assist in an evolutionary process  which is different for each planet.
+
+Oxygen in our air is not pure.
 It’s a mix of oxygen,
 nitrogen,
 carbon monoxide,
-water etc,
-all influenced by the global weather patterns on giant and micro scale.
-The same with oxygen inside lakes,
-rivers and puddles as part of the hologram in which we're entangled as particles moving through that hologram.
-Through the entanglement with the weather patterns we're being subjected to the changes.
-We're at cause & effect of the weather until we build a house that keeps us protected in a bubble of reality even though the weather is still raging outside.
-Having said that it still effects us inside the house through pressure as water is blended with oxygen in the air that we breath.
-We can manipulate the weather,
-the clouds.
-How often have you looked at the clouds and a face looked back at you? Everyone sees something different,
-this has nothing to do with interfering with any sovereign boundaries.
-There are enough shared reality rules within our bubbles to allow simultaneous and shared vision.
-What happens when a meteoroid shows up? There is a different set of interactive rules for the hologram.
-It is something that is operating in the bigger hologram impacting on the smaller one with entangled observers within it.
+water,
+and other parts,
+all influenced by the global weather patterns on macro and micro scales.
+The same is true for oxygen inside lakes,
+rivers,
+and puddles.
+Through entanglement with weather patterns we're being subjected to changes.
+A shelter keeps us protected even though the weather rages outside.
+It effects us inside the house through pressure.
+Water is blended with oxygen in the air we breath.
 
-Q: What is a temporary ELEMENTAL INTELLIGENCE and can you give us an example? Whilst oxygen is the basis for life here on Earth there are planets that don't have oxygen.
-Life can exist in the rolling particles of dust with the dust creating its own electromagnetic field.
-These are things that are,
-like willows of the whisk,
-things floating around in the bogs in the marshes that give off gases associated to electromagnetic frequency.
-When they reach a certain layer,
-just above the dew point,
-they actually will come together on an etheric level and become a temporary elemental intelligence which will resolve after having accomplished its mission.
+
+Oxygen is the basis of life on earth.
+There are planets with no oxygen.
+Life can exist in the rolling particles of dust.
+The dust creates its own electromagnetic field.
+Willows of the whisk,
+or other things floating around in the bogs and marshes,
+produce gases associated to electromagnetic frequency.
+When these gases reach a certain layer just above the dew point they come together on the etheric level and become a temporary elemental intelligence.
+It resolves after accomplishing its mission.
 For example one form of this intelligence would stir up stagnate energy in places and space.
 Another elemental intelligence can help beings that have crossed over to find their tunnel of light or assisting in the seed process of growing microorganisms deep in the ground.
 
