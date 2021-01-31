@@ -1,1 +1,1 @@
-pandoc alchemy.md languageAsTime.md psychichAbilities.md senses.md sigilsGluphs.md speedBumps.md -o chapter6.docx
+pandoc alchemy.md backgroundElementals.md floodsHurricanes.md goldSilver.md languageAsTime.md psychichAbilities.md senses.md sigilsGluphs.md speedBumps.md storms.md volcanoes.md water.md -o chapter6.docx
