@@ -2,29 +2,15 @@
 
 
 
-Our aura is an ever evolving process impacted by language.
-It effects a series of patterns within patterns that determine why the colors are there or not there.
-Auras are an adaptive system and many people can actively deceive you by making their aura go one way and think another.
-Why do you think lying works?
-So many people say why doesn’t a psychic know they are being lied to?
-You have to understand the perceptions of colour.
-Does that person believe that he or she is not doing any harm by lying in the very moment they do?
-It is a camouflage for all sorts of negative reasons.
-If the light worker community would stop bastardising the colour teaching we would understand why lying works.
-We’d have a much better chance of perceiving it in the moment.
-Some can hear lies.
-We all have a bullshit detector and sometimes it needs an upgrade.
-Some people’s capacity of broadcasting bullshit is good and we need to stay out of charge and polarity,
-which is the main influencer why lying works.
-Con artists manipulate your own charge and polarity and you fall into the victimhood trap.
 
-Q: What do you call a conversational terrorist and how can we counter one?
-For a conversational terrorist their point of view is the only one that counts.
-People will often delude themselves into believing their own words and present them as a gospel truth.
-They are trying to disrupt your thoughts and see everything through a right and wrong perspective.
-They keep babbling without making much sense and try to lure you into emotional outbursts or defeat.
-Best way of dealing with a person like that is to shut your energy field down and increase your light manyfold so that they can’t suck your energy.
-It will return their poison as they can’t handle that high frequency light.
+A language terrorist believes their point of view is the only one that counts.
+People often delude themselves,
+believe their own words,
+and present them as a gospel truth.
+They're trying to disrupt your thoughts.
+These people see everything through a right and wrong filter.
+They babble without making much sense.
+They try to lure us into emotional outbursts or defeat.
 Learn how to manipulate the energy of a conversation without stepping on someone’s journey by out vibrating them and without allowing them to harvest your vibration.
 You can use body language to innately fortify yourself without them ever recognising what you are doing.
 You can nullify the demon inside the other person by making them repeat something so difficult that they cannot cognify it so that the soul has to come in for a moment and then chuck out the rest.
