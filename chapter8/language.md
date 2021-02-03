@@ -170,3 +170,53 @@ They think from multiple perspectives.
 It allows them a greater understanding of the unlimited point of view.
 They are waiting for us to come out of the limitation our language imposes on us.
 The global narrative blocks language from evolving into multidimensional thinking.
+
+
+
+
+
+The entire body gets involved in communicating.
+Words make up the least significant part of our rapport,
+less than ten percent.
+The rest is expressed through our tone,
+tempo,
+timber,
+volume,
+and physiology,
+as in posture,
+gesture,
+breathing,
+facial expressions,
+and blinking.
+We often use hand positions when explaining dense material,
+using the streams of light in our hands to examine the field and the strands we want to connect with.
+It is like moving the sheets of information around to get to the specific data faster,
+a way of determining sub information and how that effects the whole.
+It is almost like I am using the hands to complete a spiritual process.
+
+
+When we speak light language it's through the throat chakra.
+All of our senses observe the vocal patterns the reality is observing through the throat chakra.
+The knowing is in the heart.
+The completeness of the manifestation is in the voice
+&mdash;
+the throat chakra.
+We are setting a tone and frequency.
+People might not speak a language but they can still intuit a body language,
+an auric field interacting with it,
+and the psychic information which is the sign form of light language.
+Speaking light language uses all parts of our body.
+The final manifestation is how the reality interprets it as an observer or an unentangled observer.
+Light language can speak to unentangled observers and be unentangled,
+yet they still get their point across.
+We have the right to speak with them.
+The *I am* presence is the apex of this hierarchical order.
+We can use our words of command to be in dominion or communion with beings.
+When our light bodies are calibrating more with the *I am* presence,
+languages through our soul and voice box becomes easier.
+The translation is free flowing with harmony in which several phrases before you speak light language can get changed and modified,
+the expression of photonic light.
+We are giving codes to light itself to change an expression,
+like a kaleidoscope opening and closing a specific pattern.
+We can make multiple sets and patterns throughout the entire conversation.
+It's almost like we remember how to use the frequencies of the voice intonations to effect reality.
