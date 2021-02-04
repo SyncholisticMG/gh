@@ -2,63 +2,15 @@
 
 
 
-
-Our DNA skinsuits have a potential to work within eight colors and nine bodies.
-This is superluminal thinking,
-our DNA birth right as a lineage being.
-We are currently a seven color time experiencing world.
-The vast majority of worlds out there are two or three colors.
-A smaller percentage are four,
-five.
-and six color worlds.
-Arcturians and Pleiadians have multiple frequencies of individual time on the surface of their planets,
-but their worlds don't use Roman numeral time.
-They can use dozens of colors and create more if the factions on the planet choose.
-We have a variety of beings who come to our seven color world.
-Their DNA can only experience three colors,
-but their world allows them to have layers of reality.
-We live in a multi-layered uni-world.
-There are two color beings right next to us,
-layered on top of us,
-aware of us and unaware of us
-&mdash;
-rocks,
-walls,
-and blades of grass.
-They're two color life force energies experiencing time.
-A three color being experiencing time might be something like a cricket,
-or a clan of crickets,
-which is actually one soul,
-or a hive of bees,
-which be two souls in six or seven thousands bees.
-
-Let’s say in the foetus in the womb blueprint process a previous *I am* that used to be a 2 colour experiencing being determines that it wants to elevate to a 3,
-4,
-5 colour being.
-It will then go to the astral city soul family related to them in the NORTHPOLE (past) Aurora Borealis and spend time there charting a course of what types of soul families it wants to work with before it transits to the SOUTHPOLE (future) signalling to earth mother to enter the EARTH incarnation grid.
-There is where it will spend a frequency what is called blue road time in which it comes into the foetus state.
-It waits for an egg or sperm or seed which has its own technology and chooses the right astral process to become an animated being.
-As a sperm based being the mother and father create the portal of the lineage and the being that is in the blue road astral time becomes the first spark.
-The nine month gestation process is where the former 2 colour being learns to experience all 7 colours of time through their parents.
-That is the first imprint upon the foetus in the womb process.
-This is why it's so vital as practitioners of our own healing that we return to the foetus in the womb state and once again get communal access to the growth of the blueprint to be able to create changes.
-Upon birth the foetus forgets everything that happened in the astral worlds,
-all the programming it has done in the North and South Pole.
-It no longer remembers that it had access to the earth mother’s incarnation grid and that it planned its life with the tens of thousands of beings and made spiritual contracts to create true and false synchronicities.
-It no longer is aware of all temporary synchronicities that put it on multiple frequencies or timelines because this is a 100 % free willed universe.
-Free for all denizens where the domination and control exists,
-tries to predict our life journeys whilst we learn to plan big and long term.
-
-Q:
 Can we say more on the prediction of us through the system?
 The system gets to read our spiritual contracts that we are making with everyone else and makes a prediction of how effective we are going to be at it and it's going to put things in our way called karmas.
-Karmas are a repetition process that usually have no illumination as the system wants to make sure that the foetus in the womb is working extra hard during the nine months where it has infinite access to all the physical beings in and out of manifestation until its birth.
+Karmas are a repetition process that usually have no illumination as the system wants to make sure that the fetus in the womb is working extra hard during the nine months where it has infinite access to all the physical beings in and out of manifestation until its birth.
 This is the time of the greatest amount of light where this being can be in service and contribution to a master collective of beings of light who are still an uncollective during the time of the initial spark’s creation.
 That leads to the great forgetting and the living and growing of beings in mass processes in which we are creating new generations of beings who are now existing with race amnesia.
 The system has been selectively redating aspects of history so there is not a common colloquial representation to rely on thus why the mandala effect is a consequence in retribution for those that are manipulating the natural order.
 We are now getting to the point of evolution of this particular world where the previous systems of control,
 the apparatus of domination and control,
-can no longer predict what that previous 2 colour time being was going to do in its infinite state of prediction and blueprint.
+can no longer predict what that previous 2 color time being was going to do in its infinite state of prediction and blueprint.
 
 Q:
 What can we do as conscious beings on the path of consciousness exploration to inspire change?
