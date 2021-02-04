@@ -220,3 +220,19 @@ We are giving codes to light itself to change an expression,
 like a kaleidoscope opening and closing a specific pattern.
 We can make multiple sets and patterns throughout the entire conversation.
 It's almost like we remember how to use the frequencies of the voice intonations to effect reality.
+
+
+
+Every communication is multidimensional.
+An expansive communication is based on the broadcaster and the receiver looking at the match of the three way forms of interaction of frequency,
+vibration,
+and harmony.
+When we speak a multitude of beings in the past,
+the future,
+the seen,
+and the unseen are listening.
+A high frequency statement is low in harmony.
+It creates powerful sparks,
+not necessarily in the now,
+but later in time,
+for the people listening in archives and beyond.
