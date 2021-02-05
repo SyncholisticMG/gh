@@ -17,26 +17,25 @@ literally in our intestinal tract.
 This is how our DNA skinsuit was set up,
 it's a dreaming skinsuit but it has a time sensitive spirit inside it.
 
-Q: What is a rebellious dreaming body?
-A rebellious dreaming body can be when we are going into sacred geometry cities,
-through backdoors to relationships that went toxic,
-to alter time frames to heal them.
-All the orders that we have been taking in the physical as well as the dreamworld we must destroy them.
-These are the things we need to remove from our dreaming body so that the power of our dreaming body is returned to we so when we go to sleep as the I am presence we are telling the dreaming body,
-we are not dreaming in these places but we are going to the places of our true soul family and we are going to have a soul family reunion.
-This is my will of the *I am* presence and the way of the now.
-The body at times gets cocky and thinks it's the soul and the soul spark is the experience.
-It's the other way round.
 
-Q: Taking one’s power back from the Dreaming Body?
-Salt baths,
-talking to the fire,
-any of the tools and techniques we have in our spiritual hygiene toolbox apply them to all the dream times we were forced to conform.
-Find those times in our life where we chose conformity over authentic expression.
-Often our dreaming body is making we conform.
-Toxicity can be a  debt,
-that was created by others,
-which we don't need to take on.
+A rebellious dreaming body occurs when we going into sacred geometry cities through back doors.
+It could be to heal or for some other reason.
+We must destroy the orders we've been taking in the physical as well as the dreamworld.
+
+We need to remove these things from our dreaming body.
+
+The power of our dreaming body is returned to us so when we go to sleep as the *I am* presence.
+We dictate to the dreaming body
+&mdash;
+we're not dreaming in these places;
+we're going to the places of our true soul family,
+and we're going to have a soul family reunion.
+This is my will of the *I am* presence and the way of the now.
+The body gets cocky and thinks it's the soul and the soul spark is the experience.
+It's the other way round.
+We must find those times in our lives where we chose conformity over authentic expression.
+Often our dreaming body is making us conform.
+Toxicity can be a  debt created by others we don't need to take on.
 For the true human potential to be understood we must conquer our own spiritual,
 physical,
 social,
