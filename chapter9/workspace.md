@@ -10,7 +10,7 @@ Remote viewing is a tiny sample of what's possible now.
 Part of we is in the North and South Pole,
 the past and the future When we are remote viewing,
 we are extending our photonic light expressions.
-Wer power is to control our dreaming body,
+Our power is to control our dreaming body,
 that means where we belly button,
 two inches above and below,
 literally in our intestinal tract.
