@@ -69,3 +69,84 @@ the dreaming body of earth,
 where we achieve a dream state in which we invite other societies from other places,
 spaces,
 and frequencies in time to be part of the hub of interconnectivity.
+
+
+We can’t choose who we travel with when we haven’t achieved full sovereignty in our dreamworld,
+but we aren't limited to what our society tells us.
+We can claim our sleep time and not be affected our nation’s borders.
+Revocations only go so far to get we out of mediocrity and then we need to create beyond probably not just in language but art work,
+with fire and s.
+Joy is the main river,
+allow the synchronicities to flow.
+
+
+Certain dreamtime societies help us evolve by going to our next level
+&mdash;
+dreaming in many places at once.
+The purpose is to prove it as a soul,
+that we can do it,
+and the *I am* is the direct manifestation that the universe has happened.
+It's to validate the great dreamtime awakening for other dreamtime societies who've lost faith it's coming
+&mdash;
+a multitude of residual images and emotions calling for remedy and resolve.
+Some residual images need a residual time.
+That’s why many of them feel layered over.
+The time gaps are synchronistic manifestations of multiple time frequencies in a dream.
+That’s the uni-world of all forms of thoughts,
+concepts,
+and perceptions layered atop each other.
+Different timelines are not dependent on each other.
+They're each a product of themselves.
+
+
+
+
+We can use dreams to resolve karma.
+We can install dharma by commencing the frequency where karma can no longer hold us back,
+where we are propelled into creating dharma.
+We can make manifest in the dreamworld.
+We can create a solidified memory,
+a tangible mind space process where we make tangible dream weave frequencies in the photonic light memories we work with.
+To do this we have to let go of control and expectations.
+Dream energies can get stuck in the intestinal tract.
+If we can’t remember our dreams this is often a clue.
+
+The world is in our face so much our dream frequency isn't allowed to percolate more of our awareness.
+It's important we have a disciplined approach before we go to sleep and before we wake up
+&mdash;
+those ten minutes before we get up are ours.
+It can be the greatest potency of discipline to reclaim ourselves,
+saying no to our parasympathetic,
+instantly ripping us out of theta into the alpha state.
+We can also choose to go back to sleep,
+back to the dream.
+We've been sharing dreams since before there was a society.
+
+
+We're all part of earth’s dream.
+We don’t live in her dreaming body.
+She’s got her own.
+We live on her physical body,
+but she's simultaneously dreaming with every living being to create a physical body.
+When we choose to be part of our dreamworld and engage with different dreamtime communities,
+organizations,
+and societies on the surface world,
+we become part of earth's mid-theta and high-theta dream frequency.
+When we reach the next level,
+where we work high quality dream frequencies and go on missions.
+We work with the astral dream world to create a benefit for the seven past and seven future generations,
+then,
+ultimately
+we're dreaming with the celestial dream time society and we go into the hollow earth,
+the dreaming body of earth,
+where she achieves a dream state and invites other societies from other places,
+spaces,
+and frequencies in time to be part of the hub of interconnectivity
+&mdash;
+mother earth dreaming with many other planets simultaneously.
+Her dreaming body is in the inner earth.
+We get access to it when we have done our due diligence and self mastery work.
+When we enter the lucid dreaming state as awakening beings,
+we can make powerful manifestations within ourselves and the energies around us.
+The state of mother earth’s dreaming body is perfect.
+There is no need to project unhealthiness onto the earth.
