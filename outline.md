@@ -12,11 +12,13 @@ Chapter II: Spiritual Economics  – (+ transcript last Sat skype)
 - Overview of History
 - Founder Beings
 - Global Narrative
-- Blank Akashic records
+- DNA Black Market
+- Blank Akashic records seeding
 - False Gods
 - Background Elementals
 
 .. many of the things in this chapter need to be moved to chapter 7
+
 
 
 -
@@ -25,10 +27,11 @@ Chapter II: Spiritual Economics  – (+ transcript last Sat skype)
 Chapter III: I Am Individualization (+walking, void, soul politics – entitities go last)
 
 - I am agencies
+- The I AM Individuation process
 - soul family politics
 - Schumann Resonance
 - Walk in
--
+- Void space?
 
 Chapter IV: Humanoid Natural Living
 
@@ -47,12 +50,18 @@ Frequency, Harmony, and Vibration  (tentative title)
 
 - harvest from chapter 2
 - transcript from three Saturdays ago
+- Agendas
+- Celestial Medium
+- Crystallisation
+- The LIteral Metaphor
+- Splitting Consciousness
+- Superilluminal thinking
 
-Chapter VII: Mechanics of Communication
+Chapter VII: Mechanics of Communication (swap with Chapter VI)
 
 - cosmic communications
 - spiritual mechanics, look at original chapter 9
--
+- maybe entities & demons from no chapter III
 
 
 
