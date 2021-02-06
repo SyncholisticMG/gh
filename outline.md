@@ -1,9 +1,69 @@
 Chapter I: The Divine Hologram
-Chapter II: Paradoxical Reality (now chapter III)
-Chapter III: Emergence (swapped with chapter II) – (+ transcript last Sat skype)
-Chapter IV: I Am Individualisation (+walking, void, soul politics – entitities go last)
-Chapter V: Humanoid Natural Living
-Chapter VI: Advanced Spirituality
-Chapter VII: Celestial mediumship (parts from II and add with signature frequency teaching)
-Chapter VIII:Mechanics of Communication
-Chapter IX: Dreamtime Exploration & Awakening 
+
+As is
+
+
+Chapter II: Spiritual Economics  – (+ transcript last Sat skype)
+
+
+- Economics
+- The Farm
+- Spiritual Commerce
+- Overview of History
+- Founder Beings
+- Global Narrative
+- Blank Akashic records
+- False Gods
+- Background Elementals
+
+.. many of the things in this chapter need to be moved to chapter 7
+
+
+-
+
+
+Chapter III: I Am Individualization (+walking, void, soul politics – entitities go last)
+
+- I am agencies
+- soul family politics
+- Schumann Resonance
+- Walk in
+-
+
+Chapter IV: Humanoid Natural Living
+
+- the existing chap 4
+
+
+
+Chapter V: Advanced Spirituality
+
+
+- 
+
+Chapter VI: Celestial mediumship (parts from II and add with signature frequency teaching)
+
+Frequency, Harmony, and Vibration  (tentative title)
+
+- harvest from chapter 2
+- transcript from three Saturdays ago
+
+Chapter VII: Mechanics of Communication
+
+- cosmic communications
+- spiritual mechanics, look at original chapter 9
+-
+
+
+
+Chapter IX: Dreamtime Exploration & Awakening
+
+
+
+
+
+
+Later Book
+
+
+- Yellow Boxes
