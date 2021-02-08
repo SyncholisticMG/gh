@@ -1,4 +1,4 @@
-### Story 
+### Story
 
 
 
@@ -68,8 +68,8 @@ we call life, unconditionally offering the experiences as an expression
 of its love. You believe as much already if you follow a prophetic
 religion. The prophets tell of a a story already written.
 
-Do not diminish your position as a living and sentient being. You are
-creating within this world. Your free will choices unfold the story. As
+Do not diminish our position as a living and sentient being. You are
+creating within this world. Our free will choices unfold the story. As
 the story unfolds, you receive the blessings of the particular
 experience. Never feel overwhelmed or helpless. We are truly connected
 to the outcome of our unique choices. As we get further into this
