@@ -1,30 +1,5 @@
 
-## Free Will, Choice, Consciousness & The Levels of Awareness
-
-
-The global narrative as we know it today was created at the dawn of
-industrialization 300 years ago. It was created so electromagnetic
-belief engines could override faith and become a programmed norm. They
-needed to get people into cities as slave labor for industrial
-production lines. The slaves created and empowered the collective belief
-system. People lived in their own bubbles of reality prior to this urban
-amalgamation. They had space, and they lived a few hundred kilometers
-apart and had their own unique narrative maintained by the chief,
-sheriff, or community council. Secret societies proliferated so people
-could have their own narrative among followers and believers. The
-writers of the global narrative understood they needed to inspire awe,
-and they knew they could do it with trains, automobiles, electricity,
-indoor plumbing, hot and cold water, refrigeration, telephones. By the
-twenties people were living in wooden, stone, or brick houses that
-needed heating. In a century and a quarter electricity was in homes.
-People no longer needed whale fat for candles and oil. Understand how
-monumental this was &mdash; ninety percent of the world was lit by whale fat
-for millennia. The narrative had to be updated, revised, and maintained
-from one generation to the next to suppress anything that wasn’t fitting
-into the official story. This touches almost every science, but, by way
-of example let's use anthropology and the hiding of giant’s skulls and
-bones. Yes, giants were on the earth. The enforcement of the lies has
-been an ongoing control policy right up till today.
+### Free Will
 
 We can understand the importance of individual awakening in this time of
 collective narrative dominance. The individual needs to dismantle the

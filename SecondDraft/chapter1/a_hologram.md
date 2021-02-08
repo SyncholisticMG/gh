@@ -50,8 +50,8 @@ our mother and father,
 our pets,
 everything.
 
-The holographic reality has been explored extensively by other researchers and writers.
-Most notably in *The Holographic Universe: The Revolutionary Theory of Reality* by Michael Talbot.
+The holographic reality has been explored extensively by other researchers and writers,
+most notably in *The Holographic Universe: The Revolutionary Theory of Reality* by Michael Talbot.
 It's an excellent read.
 The pullout quote from *The New York Times* review sums it up perfectly.
 
@@ -65,7 +65,6 @@ If this is a hologram then what's real?
 The answer is a paradox.
 Our reality is simultaneously real and unreal.
 It depends on us.
-
 It's not surprising the hologram is trending now as a social concept.
 It's everywhere.
 Talbot seems to be at the forefront of it.

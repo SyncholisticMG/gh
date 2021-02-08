@@ -1,6 +1,6 @@
 
 
-## Pre and Post Cognitive Workforces
+### Precognition and Postcognition
 
 
 Several seconds before we consciously make a decision its outcome can be

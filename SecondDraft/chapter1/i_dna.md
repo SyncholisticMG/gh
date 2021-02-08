@@ -44,13 +44,12 @@ exchange,
 and pass on.
 
 
-```
-All the world’s a stage,
-And all the men and women merely players;
-They have their exits and their entrances;
+>All the world’s a stage,
+>And all the men and women merely players;
+>They have their exits and their entrances;
 
-Shakespeare  As You Like It
-```
+>Shakespeare  As You Like It
+
 
 
 DNA is the encoding,

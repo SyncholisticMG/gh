@@ -1,13 +1,6 @@
 ### Story
 
 
-
-
-
-
-
-
-
 We live in a reality defined by experience. We tell stories. They have a beginning, a middle, and an end. We chronicle our stories. The first person who ever took pen to paper did so in fear, and this is why human beings are enmeshed in stories. We love the drama. We love to create it, and we love to consume it. Drama is tension. Human beings say they want peace, but it's kind of a scam when you're honest. If we wanted peace we wouldn't create tension in our lives, but without the tension we can't live the drama. It's best just to be honest. If you lie about it you're more susceptible to programming, which proliferates the world, hundreds of broadcast networks and movie studios all over the world &mdash; Hollywood, Bollywood, Hong Kong, Shanghai, the Canadian Broadcasting Corporation, British Broadcasting Corporation, and too many more to list &mdash; all servicing humanity's insatiable appetite for programming, which is drama for the most part, which, as we have clearly established, is tension. Yet, if you walk up to any human being and ask them if they prefer peace to tension they will tell you they prefer peace. Isn't that strange?
 
 It really isn't that strange when you understand what's going on down

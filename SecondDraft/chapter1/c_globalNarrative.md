@@ -101,7 +101,7 @@ The actors in Europe,
 the Pope,
 the monarchies,
 and some of the secret societies knew the native population was in America.
-They were a bad example of autonomy of freedom that had to be destroyed.
+They were a bad example of autonomy and freedom that had to be destroyed.
 The long term plan had already been formed.
 
 They needed to get people into cities as slave labor for industrial production lines.
