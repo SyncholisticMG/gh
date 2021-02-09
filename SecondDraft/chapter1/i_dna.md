@@ -69,11 +69,9 @@ the final state of being.
 
 
 
-```
-One generation passeth away, and another generation cometh: but the earth abideth for ever.
+>One generation passeth away, and another generation cometh: but the earth abideth for ever.
 
-Ecclesiastes 1:4
-```
+>Ecclesiastes 1:4
 
 
 
@@ -89,6 +87,7 @@ Memory is not physical.
 It's a form of light stored in an experience.
 ​​​​​​​As streams of consciousness we have thousands of sub-carrier codes of millions experiences inside us.
 We only need tune into the memory and we can go into that stream of experience at any scale we desire.
+
 
 
 

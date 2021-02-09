@@ -1,4 +1,8 @@
-### Hologram
+# The Divine Hologram
+
+
+
+## Hologram
 
 Our reality here on earth is a hologram.
 A hologram is defined as follows by *Merriam Webster's Online Dictionary*:
@@ -155,7 +159,7 @@ This is the hologram we live within,
 a breakable rule set enforced as absolute by those who have not broken the rule set.
 
 
-### Sound and Light
+## Sound and Light
 
 The chief characteristic of our hologram is sound and light.
 Light is a boundary for time in our world.
@@ -310,7 +314,7 @@ which, they say, allows them to speak to their ancestors, and Gregorian
 chanting in the Christian tradition. It's all about the sounds.
 
 
-### Global Narrative
+## Global Narrative
 
 The global narrative is the agreed upon reality.
 Some spiritual paths call it social consciousness.
@@ -455,7 +459,7 @@ We have been led to this bottleneck,
 this opportunity.
 
 
-### Story
+## Story
 
 
 We live in a reality defined by experience. We tell stories. They have a beginning, a middle, and an end. We chronicle our stories. The first person who ever took pen to paper did so in fear, and this is why human beings are enmeshed in stories. We love the drama. We love to create it, and we love to consume it. Drama is tension. Human beings say they want peace, but it's kind of a scam when you're honest. If we wanted peace we wouldn't create tension in our lives, but without the tension we can't live the drama. It's best just to be honest. If you lie about it you're more susceptible to programming, which proliferates the world, hundreds of broadcast networks and movie studios all over the world &mdash; Hollywood, Bollywood, Hong Kong, Shanghai, the Canadian Broadcasting Corporation, British Broadcasting Corporation, and too many more to list &mdash; all servicing humanity's insatiable appetite for programming, which is drama for the most part, which, as we have clearly established, is tension. Yet, if you walk up to any human being and ask them if they prefer peace to tension they will tell you they prefer peace. Isn't that strange?
@@ -539,7 +543,7 @@ to black. It's everywhere, operating at a higher law of nature, but
 natural nonetheless. We are unentangled.
 
 
-### Free Will
+## Free Will
 
 We can understand the importance of individual awakening in this time of
 collective narrative dominance. The individual needs to dismantle the
@@ -655,7 +659,7 @@ expansive view of time and timelessness.
 
 
 
-### Entangled and Unentangled
+## Entangled and Unentangled
 
 
 As we move past a subject,
@@ -1040,7 +1044,7 @@ mystical becomes the norm.
 
 
 
-### Precognition and Postcognition
+## Precognition and Postcognition
 
 
 Several seconds before we consciously make a decision its outcome can be

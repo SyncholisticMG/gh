@@ -15,8 +15,8 @@ is that they are contextually true.
 There are two gradients of truth that must line up in any investigation
 &mdash;
 details and context.
-If you get the details right in the wrong context the truth will not unlock for you,
-and if you get the right context and the wrong details you are similarly locked out of the truth.
+If we get the details right in the wrong context the truth will not unlock for us,
+and if we get the right context and the wrong details we are similarly locked out of the truth.
 The context of our situation has always been correct.
 We are beset by negative,
 regressive,
@@ -59,7 +59,7 @@ and a million other linguistic artifacts of mental colonization.
 Our spiritual birthright and legacy are robbed.
 When someone popped into remind us
 &mdash;
-and her you can pencil in a near endless list of sages,
+and her we can pencil in a near endless list of sages,
 shamans,
 prophets,
 mystics,

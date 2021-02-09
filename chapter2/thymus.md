@@ -72,23 +72,23 @@ penned it beautifully in his poem,
 *Another Weeping Woman*.
 
 
-```
-Pour the unhappiness out
-From your too bitter heart,
-Which grieving will not sweeten.
 
-Poison grows in this dark.
-It is in the water of tears
-Its black blooms rise.
+>Pour the unhappiness out
+>From your too bitter heart,
+>Which grieving will not sweeten.
+>
+>Poison grows in this dark.
+>It is in the water of tears
+>Its black blooms rise.
 
-The magnificent cause of being,
-The imagination, the one reality
-In this imagined world
+>The magnificent cause of being,
+>The imagination, the one reality
+>In this imagined world
 
-Leaves you
-With him for whom no phantasy moves,
-And you are pierced by a death.
-```
+>Leaves you
+>With him for whom no phantasy moves,
+>And you are pierced by a death.
+
 
 
 

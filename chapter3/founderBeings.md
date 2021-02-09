@@ -9,7 +9,7 @@ and space stations repaired,
 self-updating,
 and clean.
 They kept us as butlers and servants.
-we were iPhones,
+We were iPhones,
 their technology,
 not living beings,
 at least from their perspective.
@@ -62,7 +62,7 @@ It took a soul ten to twelve eras of light to go from one place to another.
 Crossing galaxies and universes was a monumental task.
 This created the farming.
 The beings imbued with founder technology woke up.
-They became aggressive and defensive,
+They became aggressive and defensive.
 They started dividing territory and claiming space for themselves.
 This is when the main reptilian species came.
 They had conquered their own builder foundation technology,
@@ -78,7 +78,7 @@ They started invading us.
 This started the Lemurian wars some fifty-five million years ago.
 The first timeline paradox occurred at this time.
 It started negative time travel in many solar systems across the galaxy.
-This resulted in an counter-creational event.
+This resulted in a counter-creational event.
 This set everything back to the beginning.
 The Lemurians tried it a second time.
 They created another counter-creational event.

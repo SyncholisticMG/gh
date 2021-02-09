@@ -1,5 +1,7 @@
 ## Personal Effort
 
+
+
 We all have the birthright of celestial mediumship.
 Our ability to inherit our birthright is conditional.
 We must focus on mastering ourselves,
@@ -67,3 +69,52 @@ How to be present in all the innumerable worlds and times is achieved by realizi
 We are not to disrupt the blueprint in fetus plan.
 It makes it easier and simpler to come back and enjoy this reality.
 Now changing states is as effortless as breathing.
+
+
+Physical movement entangles us with individual and collective consciousness,
+oscillating between explicate and implicate.
+We change environment and move through different levels of consciousness.
+We alter the existing.
+Our consciousness is acted upon by fluctuating fields of electromagnetic energy.
+Epigenetics discovered our genes are made up of fifty percent DNA and fifty percent protein.
+Genes are not self-actualizing.
+The proteins comprise the structure of the human body,
+defining shape and influencing behavior in an ongoing attempt to balance charge and polarity from the environment.
+
+Our individual bubble of reality gets enriched in experience and memory through the journey on the celestial neural pathway.
+We go from one hologram to another in the expansion we call the orchestra of consciousness.
+The neural pathways are an assemblage of proteins that move the body and help it to function.
+We all know how to walk through this reality.
+The celestial mind generates the divine holograms through which our bodies have experience.
+All living consciousness is part of the symphony.
+The light and sound which creates and sustains all the realities allows us to manage a fractal of it which we call our reality.
+Our very reality on an individual by individual basis is a co-created reality between us and the material of the hologram itself,
+sound and light,
+which sustains our physical and inner existence.
+Our dreams are expressed in sound and light.
+There are fractals within fractals.
+Culture is another fractal,
+whether it be a pueblo in a mountain village in Colombia,
+or the frenetic consumerism inspired by Madison Avenue.
+It's a hologram overlaying and interacting with your personal hologram.
+It binds us to an era of history.
+Our culture has Roman numeral time,
+which is not our true accurate time stamp.
+It may use elements of it,
+though.
+Our culture binds us to an era of history.
+It's part of the hologram of resolution.
+Our entanglement into the culture’s hologram of roman numeral time builds up a weave into the individual hologram.
+
+
+The soul can be split.
+We can be taken out of our original bodies and put into *simulated bodies* somewhere else.
+Consciousness can then be broken into hundreds of different fractals.
+The fractals may then be spread throughout time with individual missions.
+These are soul shards of yourself,
+not *I am* selves,
+bigger than normal shard pieces.
+They remain connected to the *I am* selves,
+but they are just pieces of an *I am* shattered into many pieces.
+The split the piece itself still has access to the divine hologram,
+though the shards are often convinced otherwise by the practitioners of this dark abuse.

@@ -20,5 +20,5 @@ two million things forty-eight million years ago,
 and that,
 technically speaking,
 is a non-agenda.
-The things done in the non-agenda create a resolution for some agendas or apply potential solutions for agendas stuck and unable move forward.
+The things done in the non-agenda create a resolution for some agendas or apply potential solutions for agendas stuck and unable to move forward.
 Non-agenda allows us to cut and paste time-based experiences out of certain *I am* experiences and use them temporarily in a new *I am* expression to manifest past or future non-agenda aspects into a present agenda.
